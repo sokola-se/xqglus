@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月23日 21时24分59秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>长江存储3D NAND技术突破，存储芯片板块反弹</h3><br><p>思源电气电网设备出口高增，前三季度业绩预增超30%。<br><br> | 来源：<code>https;//zhizhuzhiboshijiebeizaixianguankangaoqing.com.cn
+</code></p><br><br><h3>饼干产品价格上涨3%，食品细分板块盈利提升</h3><br><p>坚果产品价格上涨5%，休闲食品龙头盈利改善。<br><br> | 来源：<code>https;//zhizhuzhiboshijiebeizhibozaixian.com.cn
+</code></p><br><br><h3>公募基金集中调研电力现货交易标的，交易系统订单翻倍</h3><br><p>九寨沟暑期恢复全部开放，单日接待游客量突破4万。<br><br> | 来源：<code>https;//zhizhuzhiboshijiebeizhibozaixiankan.com.cn
+</code></p><br><br><h3>高管团队集体增持宠物食品龙头，合计增持超6500万</h3><br><p>央行超额续作MLF并降息5BP，流动性宽松信号明确。<br><br> | 来源：<code>https;//zhizhuzhibowangqiumianfeiguankan.com.cn
+</code></p><br><br><h3>国内大模型人才缺口破百万，AI相关专业毕业生供不应求</h3><br><p>圣邦股份放量上涨4.6%，模拟芯片国产替代加速。<br><br> | 来源：<code>https;//zhizhuzhiboxiaohulishijiebei.com.cn
+</code></p><br><br><h3>中国男子橄榄球队亚运会闯入八强，项目普及度持续提升</h3><br><p>高管团队集体增持智慧交通标的，合计增持金额超1.2亿。<br><br> | 来源：<code>https;//zhizhuzhibozaixianzuqiuzhibo.com.cn
+</code></p><br><br><h3>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升</h3><br><p>农业机械化推广政策，农机装备板块全线异动。<br><br> | 来源：<code>https;//zhizhuzuqiubisaimianfeizhibogaoqing.com.cn
+</code></p><br><br><h3>客家文化申遗工作推进，千年迁徙文化得到系统性保护</h3><br><p>安琪酵母放量上涨3.6%，海外市场拓展超预期。<br><br> | 来源：<code>https;//zucaibifen500wang.org.cn
+</code></p><br><br><h3>外资单日扫货海尔智家8亿，白电龙头外资持仓稳步提升</h3><br><p>调味品开启集体涨价，食品板块盈利迎来修复。<br><br> | 来源：<code>https;//zucaijingcaiwangshouye.org.cn
+</code></p><br><br><h3>饼干产品价格上涨3%，食品细分板块盈利提升</h3><br><p>长白山暑期避暑游热度高，日均接待游客超2万人次。<br><br> | 来源：<code>https;//zuqiu3377tiyuzhibo.com.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持风电轴承龙头，合计投入超4亿</h3><br><p>海康威视海外市场拓展：AI安防产品的全球份额提升。<br><br> | 来源：<code>https;//zuqiubisaizhibo88.org.cn
+</code></p><br><br><h3>酸奶产品价格上调4%，乳业细分板块盈利提升</h3><br><p>外资持续流入亿纬锂能，储能龙头外资持仓占比突破4%。<br><br> | 来源：<code>https;//zuqiuguankanzhibozaixian.com.cn
+</code></p><br><br><h3>电竞入亚成绩亮眼，电竞游戏产业链标的拉升</h3><br><p>中国铁建全球工程布局：轨交基建龙头的海外市场拓展。<br><br> | 来源：<code>https;//zuqiushipingaoqingzhibo.com.cn
+</code></p><br><br><h3>荷兰经济避免衰退，服务业支撑经济稳定增长</h3><br><p>宝钢股份板材盈利修复，前三季度业绩预增超30%。<br><br> | 来源：<code>https;//zuqiushishizhiboshipin.com.cn
+</code></p><br><br><h3>中国保龄球队亚运会夺得金牌，小众项目实现历史性突破</h3><br><p>坚果产品价格上涨5%，休闲食品龙头盈利改善。<br><br> | 来源：<code>https;//zuqiuxianchangshipinzhibo.org.cn
+</code></p><br><br><h3>社保基金新进重仓钙钛矿光伏标的，持仓占比达4.2%</h3><br><p>跨境支付龙头登陆港股，海外结算规模年增速超80%。<br><br> | 来源：<code>https;//zzxiaohulinbazhibo.org.cn
+</code></p><br><br><h3>游资顶级席位打板亨通光电5400万，海缆标的获热炒</h3><br><p>全国美术馆年展览超2万场，艺术惠民覆盖千万群众。<br><br> | 来源：<code>https;//zzxiaohulizhibonba.com.cn
+</code></p><br><br><h3>央行逆回购操作利率下调，短期资金面维持宽松</h3><br><p>恒瑞医药研发管线复盘：从仿制药龙头到创新药巨头的蜕变。<br><br> | 来源：<code>https;//066tyzbw.cn
+</code></p><br><br><h3>慢就是快：在高确定性标的上持仓，远比追热点赚得稳</h3><br><p>保险资管举牌机器人减速器标的，核心零部件获机构重仓。<br><br> | 来源：<code>https;//066tyzbw.com.cn
+</code></p><br><br><h3>比亚迪AH股同步走强，量价配合下的交易机会分析</h3><br><p>全国医院预约挂号覆盖率达100%，平均就诊时间缩短至1小时内。<br><br> | 来源：<code>https;//066tyzbw.org.cn
