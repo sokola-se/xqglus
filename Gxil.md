@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分10秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>LPR非对称下调，银行净息差压力边际缓解</h3><br><p>全国碳捕集利用与封存项目年处理能力突破1500万吨。<br><br> | 来源：<code>https://91con.cn
+</code></p><br><br><h3>以色列经济逐步复苏，高科技产业重回增长轨道</h3><br><p>多地推出文旅惠民卡，年卡销量破百万撬动百亿消费。<br><br> | 来源：<code>https://91con.com.cn
+</code></p><br><br><h3>全国工业余热利用项目大规模落地，年节能超千万吨标准煤</h3><br><p>券商研究所扎堆调研智能电网标的，特高压设备中标数据。<br><br> | 来源：<code>https://91cwang.cn
+</code></p><br><br><h3>量子信息产业规划发布，量子通信标的全线拉升</h3><br><p>饼干产品价格上涨3%，食品细分板块盈利提升。<br><br> | 来源：<code>https://91dizhiyongjiurukou.com.cn
+</code></p><br><br><h3>控股股东耗资2.8亿增持创新药龙头，核心管线临床进展获信心</h3><br><p>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升。<br><br> | 来源：<code>https://91dongman.cn
+</code></p><br><br><h3>京津冀协同发展十周年，区域经济总量突破12万亿元</h3><br><p>中际旭创光模块技术：数通光模块全球龙头的份额逻辑。<br><br> | 来源：<code>https://91guochan.com.cn
+</code></p><br><br><h3>全球智能家居市场规模突破1万亿美元，智慧家庭普及</h3><br><p>中国电建绿电运营：新能源电站的长期稳定现金流价值。<br><br> | 来源：<code>https://91heiliaochigua.com.cn
+</code></p><br><br><h3>成都推出“文旅+美食”线路，带动餐饮营收同比增长50%</h3><br><p>硅片价格单月上涨5%，光伏制造环节盈利边际改善。<br><br> | 来源：<code>https://91kanpianwangzhanzaixianguankan.com.cn
+</code></p><br><br><h3>黄山暑期单日客流破4万，山顶酒店提前半个月售罄</h3><br><p>城中村改造专项政策，城中村改造标的全线异动。<br><br> | 来源：<code>https://91kanwangyeban.cn
+</code></p><br><br><h3>上汽集团放量上涨3.5%，新能源汽车出口超预期</h3><br><p>全球卫星互联网用户突破1亿，太空经济进入爆发期。<br><br> | 来源：<code>https://91kanwangyeban.com.cn
+</code></p><br><br><h3>财政部出台减税降费新政，全年为企业减负超1.2万亿元</h3><br><p>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%。<br><br> | 来源：<code>https://91kuaihuolin.cn
+</code></p><br><br><h3>东方雨虹建材需求回暖，前三季度业绩预增超25%</h3><br><p>中国男子射箭队世锦赛团体夺冠，打破韩国长期垄断。<br><br> | 来源：<code>https://91liulanqi.cn
+</code></p><br><br><h3>海洋强国建设新规划发布，海洋经济总量突破9万亿元</h3><br><p>五粮液重回165元，中秋旺季备货提前启动。<br><br> | 来源：<code>https://91liulanqi.com.cn
+</code></p><br><br><h3>理想汽车涨超8.5%，L系列车型月销破4万</h3><br><p>中际旭创800G光模块放量，前三季度业绩预增130%。<br><br> | 来源：<code>https://91liulanqiwangye.com.cn
+</code></p><br><br><h3>国产音乐综艺全网播放量突破200亿，原创音乐人才涌现</h3><br><p>存款利率连续下调，居民配置权益资产意愿持续增强。<br><br> | 来源：<code>https://91manhua.cn
+</code></p><br><br><h3>全国演出市场线下消费人次破亿，周边产品营收占比提升</h3><br><p>锦浪科技逆变器出口翻倍，前三季度业绩预增超90%。<br><br> | 来源：<code>https://91manhua.com.cn
+</code></p><br><br><h3>多氟多涨超5.2%，六氟磷酸锂价格触底反弹</h3><br><p>证监会出台资本市场提质新政，鼓励上市公司加大分红比例。<br><br> | 来源：<code>https://91mianfeiban.com.cn
+</code></p><br><br><h3>法国二季度GDP增长0.4%，经济逐步走出停滞</h3><br><p>东北振兴新举措出台，推动老工业基地产业转型升级。<br><br> | 来源：<code>https://91n-com.com.cn
+</code></p><br><br><h3>苏炳添复出百米跑出9秒98，重返世界顶尖选手行列</h3><br><p>锌价突破2.8万元/吨，锌业上市公司盈利弹性释放。<br><br> | 来源：<code>https://91ncc.com.cn
+</code></p><br><br><h3>泸州老窖国窖批价上行，单季业绩预告超预期</h3><br><p>多地发放亿元文旅消费券，直接带动消费超30亿。<br><br> | 来源：<code>https://91ncn.com.cn
