@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分58秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>沪硅产业硅片国产替代：12英寸大硅片的产能释放逻辑</h3><br><p>美联储第三次降息落地，全球风险偏好显著提升。<br><br> | 来源：<code>https://jiu-youyule.cn
+</code></p><br><br><h3>秦始皇陵兵马俑新坑发掘启动，将揭开秦代军阵更多秘密</h3><br><p>端侧AI应用爆发，手机AI功能月活用户破10亿。<br><br> | 来源：<code>https://jiucaoshequ.cn
+</code></p><br><br><h3>国铁集团旗下标的异动，铁路改革预期持续升温</h3><br><p>江铃汽车异动拉升4.2%，轻卡新能源化加速。<br><br> | 来源：<code>https://jiujiu-ai.com.cn
+</code></p><br><br><h3>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧</h3><br><p>长安汽车深蓝品牌定位：主流新能源市场的差异化竞争。<br><br> | 来源：<code>https://jiujiu-cao.com.cn
+</code></p><br><br><h3>全国健身健美锦标赛举办，选手展现力量与健美风采</h3><br><p>中国电建新能源运营盈利高增，单季业绩预增超25%。<br><br> | 来源：<code>https://jiujiu-cha.com.cn
+</code></p><br><br><h3>成渝双城经济圈政策加码，成渝板块标的全线上涨</h3><br><p>中芯国际晶圆制造国产替代：14nm及以下制程的突破路径。<br><br> | 来源：<code>https://jiujiu-jingpin.com.cn
+</code></p><br><br><h3>金砖国家新开发银行新增贷款规模突破500亿美元</h3><br><p>家电出口超预期：白电、厨电的海外市场增量空间。<br><br> | 来源：<code>https://jiujiu-jingpinshipin.com.cn
+</code></p><br><br><h3>北向资金单日净流入超150亿，降息后外资加速入场</h3><br><p>全国连锁品牌门店数量上半年同比增长12%，线下消费复苏。<br><br> | 来源：<code>https://jiujiu-re.com.cn
+</code></p><br><br><h3>降准释放资金超万亿，流动性宽松支撑A股估值抬升</h3><br><p>特变电工涨超3.3%，新能源业务盈利持续释放。<br><br> | 来源：<code>https://jiujiu-se.com.cn
+</code></p><br><br><h3>宁德时代跳空高开6.4%，麒麟电池商业化落地加速</h3><br><p>海尔智家异动拉升4.2%，卡萨帝高端品牌增速亮眼。<br><br> | 来源：<code>https://jiujiu-shipin.com.cn
+</code></p><br><br><h3>广汽集团埃安品牌独立：传统车企新能源品牌的成长路径</h3><br><p>中国船舶全球竞争力：造船行业龙头的订单与盈利展望。<br><br> | 来源：<code>https://jiujiu-tiantang.com.cn
+</code></p><br><br><h3>全国夜间文旅消费集聚区破200个，点亮城市夜经济</h3><br><p>海大集团饲料市占率提升，单季业绩预告超预期。<br><br> | 来源：<code>https://jiujiu-wang.com.cn
+</code></p><br><br><h3>海康威视海外市场拓展：AI安防产品的全球份额提升</h3><br><p>全国红色旅游暑期人次破3亿，年轻人占比超60%。<br><br> | 来源：<code>https://jiujiu-zonghe.com.cn
+</code></p><br><br><h3>洋河股份异动拉升4.0%，梦之蓝系列动销超预期</h3><br><p>重庆建工涨超3.2%，西部基建投资持续加码。<br><br> | 来源：<code>https://jiujiuaiyazhouwuma.cn
+</code></p><br><br><h3>AI手语翻译大模型上线，助力千万听障人士沟通无障碍</h3><br><p>航发动力放量拉升5.2%，军工发动机订单落地加速。<br><br> | 来源：<code>https://jiujiucao.com.cn
+</code></p><br><br><h3>房贷利率下限进一步放宽，刚需购房成本大幅下降</h3><br><p>养老金现身光刻胶标的，ArF胶通过客户验证进度超预期。<br><br> | 来源：<code>https://jiujiucha.com.cn
+</code></p><br><br><h3>央行加大结构性降息力度，精准支持数字经济领域</h3><br><p>上海建工城市更新布局：上海本地基建龙头的区域优势。<br><br> | 来源：<code>https://jiujiujiujingpin.com.cn
+</code></p><br><br><h3>外资资管连续加仓风电轴承龙头，大兆瓦轴承获外资重仓</h3><br><p>苏州马拉松开跑，3万跑者体验江南赛道赛事口碑持续提升。<br><br> | 来源：<code>https://jiujiujiujiu.com.cn
+</code></p><br><br><h3>QFII大幅加仓IDC龙头，海外资金看好AI算力需求爆发</h3><br><p>充电桩下乡政策落地，充电桩产业链标的走强。<br><br> | 来源：<code>https://jiujiumianfeishipin.com.cn
+</code></p><br><br><h3>外资机构席位净买入中国交建5700万，基建龙头获外资加仓</h3><br><p>中国中车海外订单落地，单季业绩预告超预期。<br><br> | 来源：<code>https://jiujiure.com.cn
