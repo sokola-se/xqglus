@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分03秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>外资机构集中调研存储芯片龙头，海外订单情况成焦点</h3><br><p>全国博物馆总数突破6500家，年接待观众超12亿人次。<br><br> | 来源：<code>https://web-yy-tiyu.com.cn
+</code></p><br><br><h3>恒瑞医药异动拉升5.6%，创新药新品贡献增量</h3><br><p>复合肥价格上调7%，化肥全产业链盈利优化。<br><br> | 来源：<code>https://web-zunlong-sports.com.cn
+</code></p><br><br><h3>北方稀土异动拉升，稀土永磁行业供需格局优化</h3><br><p>5年期LPR下调后地产链情绪回暖，地产服务板块集体上涨。<br><br> | 来源：<code>https://wending-ent-web.com.cn
+</code></p><br><br><h3>5年期LPR下调后地产链情绪回暖，地产服务板块集体上涨</h3><br><p>通威股份低位反弹，光伏产业链盈利预期改善。<br><br> | 来源：<code>https://wepoker-official-ios.com
+</code></p><br><br><h3>北方华创设备布局：半导体设备全品类覆盖的龙头价值</h3><br><p>产业资本集中增持AI教育龙头，付费用户高增获资本布局。<br><br> | 来源：<code>https://white-tiger.com.cn
+</code></p><br><br><h3>挪威经济稳步增长，油气和新能源产业协同发展</h3><br><p>黄金价格创历史新高，黄金珠宝板块盈利弹性释放。<br><br> | 来源：<code>https://worias.cn
+</code></p><br><br><h3>降准降息组合拳落地，大金融板块率先迎来行情催化</h3><br><p>中拉经贸合作论坛举办，达成超200亿美元合作协议。<br><br> | 来源：<code>https://worldcup-bifen-odds.com
+</code></p><br><br><h3>贵州建工异动拉升3.1%，区域基建业务高增</h3><br><p>长安汽车放量上涨4.9%，深蓝品牌月销破3万。<br><br> | 来源：<code>https://worldcup-caishengfu-web.com
+</code></p><br><br><h3>天赐材料电解液成本控制：行业龙头的规模优势解析</h3><br><p>超180家机构到访汽车轻量化标的，一体化压铸产能释放。<br><br> | 来源：<code>https://worldcup-jingcai-entry.com
+</code></p><br><br><h3>1年期MLF利率下调带动全市场利率下行，债券牛市延续</h3><br><p>全国房贷利率动态调整机制优化，更多城市进入低利率区间。<br><br> | 来源：<code>https://worldcup-jingcai-event.com
+</code></p><br><br><h3>房贷利率下限进一步放宽，刚需购房成本大幅下降</h3><br><p>全国全民健身日活动覆盖超亿人次，群众体育热情高涨。<br><br> | 来源：<code>https://worldcup-jingcai-platform.com
+</code></p><br><br><h3>电感产品价格上涨3%，电子全产业链盈利优化</h3><br><p>超170家机构到访PCB龙头，AI服务器板订单同比翻倍。<br><br> | 来源：<code>https://worldcup-peifulv-top.com
+</code></p><br><br><h3>宇通客车全球客车龙头优势：新能源客车的全球份额扩张</h3><br><p>AI办公软件渗透率超60%，成为职场人必备工具。<br><br> | 来源：<code>https://worldcup-qunamai-web.com
+</code></p><br><br><h3>研学旅行扶持政策，教育旅游板块集体上涨</h3><br><p>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%。<br><br> | 来源：<code>https://worldcup2026-guanwang-web.com
+</code></p><br><br><h3>全国朱鹮种群数量突破1万只，从7只恢复至广泛分布</h3><br><p>预制菜核心标的开启新股申购，B端渠道覆盖全国连锁餐饮。<br><br> | 来源：<code>https://worldcup2026-official-cn.com
+</code></p><br><br><h3>镁价单月上涨18%，镁合金板块迎来产品涨价行情</h3><br><p>中国跆拳道队世锦赛斩获5金，金牌数位列奖牌榜第一。<br><br> | 来源：<code>https://wu-liaodonghua.com.cn
+</code></p><br><br><h3>国内大模型人才缺口破百万，AI相关专业毕业生供不应求</h3><br><p>绿色建材认证政策，绿色建材板块走强。<br><br> | 来源：<code>https://wu-se.com.cn
+</code></p><br><br><h3>机构+北向合力买入北方稀土2.7亿，稀土标的获资金布局</h3><br><p>葡萄牙经济增速达2.3%，旅游业持续拉动增长。<br><br> | 来源：<code>https://wudaohang.com.cn
+</code></p><br><br><h3>尾矿资源综合利用政策，尾矿回收板块走强</h3><br><p>美联储第三次降息落地，全球风险偏好显著提升。<br><br> | 来源：<code>https://wufa-jujue-de-ta-hanju.com.cn
+</code></p><br><br><h3>半导体国产替代推进：制造、设备、材料的突破路径</h3><br><p>全国儿童青少年近视率同比下降2%，视力防控成效显现。<br><br> | 来源：<code>https://wukongsaichang.com.cn
