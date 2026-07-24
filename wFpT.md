@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分51秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>降准释放资金超万亿，流动性宽松支撑A股估值抬升</h3><br><p>养老金现身创新器械标的，海外FDA获批进度超预期。<br><br> | 来源：<code>https://yingkongtao.com.cn
+</code></p><br><br><h3>光伏行业产能置换政策落地，落后产能出清标的异动</h3><br><p>产业资本连续3周增持存储芯片龙头，累计增持金额超8亿。<br><br> | 来源：<code>https://yingshi-zaixian.com.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持氢能储运龙头，合计投入超5亿</h3><br><p>超250家机构到访AI大模型企业，ToB付费转化率超预期。<br><br> | 来源：<code>https://yingshi91.cn
+</code></p><br><br><h3>上海自贸区扩区方案落地，引领更高水平对外开放</h3><br><p>北向资金单日扫货五粮液2.3亿，白酒龙头获外资持续流入。<br><br> | 来源：<code>https://yingtao-app.com.cn
+</code></p><br><br><h3>尿素价格单月上涨9%，化肥板块迎来产品涨价催化</h3><br><p>定向降息支持绿色电力，绿电运营板块获定向利好。<br><br> | 来源：<code>https://yinnanluannu.com.cn
+</code></p><br><br><h3>全国癌症早筛项目覆盖所有地级市，早诊率提升至60%</h3><br><p>洽洽食品涨超3.4%，坚果业务收入增速回升。<br><br> | 来源：<code>https://yinwang91.cn
+</code></p><br><br><h3>广西交投旗下标的异动，东盟基建合作持续深化</h3><br><p>中国短道速滑队世锦赛斩获4金，新老交替完成实力回升。<br><br> | 来源：<code>https://yiqi-cao.com.cn
+</code></p><br><br><h3>杀菌剂价格上调10%，农药细分板块迎来行情</h3><br><p>多地发放亿元文旅消费券，直接带动消费超30亿。<br><br> | 来源：<code>https://yiqic.com.cn
+</code></p><br><br><h3>休闲食品开启涨价潮，食品加工板块盈利弹性释放</h3><br><p>国内音乐节市场爆发，上半年演出场次同比增长150%。<br><br> | 来源：<code>https://yiqicao17c.com.cn
+</code></p><br><br><h3>中国桥牌队世锦赛夺得冠军，高端智力运动跻身世界前列</h3><br><p>多地出台民宿管理新规，规范行业发展保障游客权益。<br><br> | 来源：<code>https://yiqicaocom.com.cn
+</code></p><br><br><h3>三一重工数字化转型：工程机械龙头的效率提升路径</h3><br><p>钙钛矿光伏组件效率破纪录，新型光伏标的拉升。<br><br> | 来源：<code>https://yiqicaomeiridasai.com.cn
+</code></p><br><br><h3>钢材价格单月上涨7%，钢铁板块迎来产品涨价催化</h3><br><p>功率半导体价格上调6%，IGBT板块迎来涨价催化。<br><br> | 来源：<code>https://yiqicaorukou.com.cn
+</code></p><br><br><h3>产业资本集中增持休闲食品龙头，线下渠道复购改善获布局</h3><br><p>央行降准降息组合拳落地，A股市场迎来全面估值修复。<br><br> | 来源：<code>https://yiqicaoshipin.com.cn
+</code></p><br><br><h3>全国江豚种群数量突破2000头，长江微笑天使重现</h3><br><p>上半年全国机器人产量同比增长25%，智能制造加速推进。<br><br> | 来源：<code>https://yiqicaowang.com.cn
+</code></p><br><br><h3>全国足球场数量超20万个，人均足球场地面积达1.8平方米</h3><br><p>中国跳水队世锦赛包揽全部金牌，梦之队零失误完美收官。<br><br> | 来源：<code>https://yiqicaozaixianguankan.com.cn
+</code></p><br><br><h3>露营经济上半年市场规模突破300亿元，精致露营成为新趋势</h3><br><p>大金重工塔筒出口翻倍，单季业绩预告超预期。<br><br> | 来源：<code>https://yiquerqusanqu.com.cn
+</code></p><br><br><h3>浪潮信息高位震荡，算力主线的分歧与机会解析</h3><br><p>美的集团全球化运营：家电龙头的海外市场拓展路径。<br><br> | 来源：<code>https://yiren-jiujiu.com.cn
+</code></p><br><br><h3>首套房贷款利率突破2.9%，刚需购房成本创历史新低</h3><br><p>东数西算工程新节点开工，IDC算力板块走强。<br><br> | 来源：<code>https://yiren-zaixian.com.cn
+</code></p><br><br><h3>北京中轴线申遗进入冲刺阶段，千年古都风貌全面保护</h3><br><p>养老金新进光伏逆变器标的，海外市占率提升获长期配置。<br><br> | 来源：<code>https://yongbaoqingchun.com.cn
+</code></p><br><br><h3>保险资管扎堆调研机器人减速器标的，产能释放进度披露</h3><br><p>锂价连续反弹15%，锂矿板块迎来趋势性行情启动。<br><br> | 来源：<code>https://yongjiuri.com.cn
