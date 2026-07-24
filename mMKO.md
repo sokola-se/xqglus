@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分11秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>白银价格单月上涨12%，贵金属板块集体异动</h3><br><p>NOR Flash价格上调10%，闪存芯片板块盈利弹性释放。<br><br> | 来源：<code>https://jiujiu-se.com.cn
+</code></p><br><br><h3>高管团队集体增持宠物食品龙头，合计增持超6500万</h3><br><p>结构性降息精准支持制造业，高端制造板块获定向利好。<br><br> | 来源：<code>https://jiujiu-shipin.com.cn
+</code></p><br><br><h3>复合肥价格上调7%，化肥全产业链盈利优化</h3><br><p>紫金矿业创阶段新高3.2%，铜金产量持续超预期。<br><br> | 来源：<code>https://jiujiu-tiantang.com.cn
+</code></p><br><br><h3>AI音乐生成工具普及，原创音乐产出效率提升10倍</h3><br><p>国内高铁游人次上半年破10亿，“快旅慢游”成主流模式。<br><br> | 来源：<code>https://jiujiu-wang.com.cn
+</code></p><br><br><h3>隔膜价格小幅上涨3%，隔膜龙头盈利迎来修复</h3><br><p>超230家机构到访工业软件龙头，研发设计软件付费转化率。<br><br> | 来源：<code>https://jiujiu-zonghe.com.cn
+</code></p><br><br><h3>长安汽车自主转型路径：新能源车型销量爆发的底层逻辑</h3><br><p>恒瑞医药异动拉升5.6%，创新药新品贡献增量。<br><br> | 来源：<code>https://jiujiuaiyazhouwuma.cn
+</code></p><br><br><h3>英国经济止跌回升，二季度GDP同比增长0.6%</h3><br><p>多地推出“文旅+科技”项目，元宇宙景区落地超100家。<br><br> | 来源：<code>https://jiujiucao.com.cn
+</code></p><br><br><h3>中芯国际放量拉升7.3%，14nm产能利用率持续提升</h3><br><p>锦浪科技逆变器出口翻倍，前三季度业绩预增超90%。<br><br> | 来源：<code>https://jiujiucha.com.cn
+</code></p><br><br><h3>海外资管组团调研光伏逆变器标的，海外市占率突破30%</h3><br><p>江淮汽车与华为合作：传统车企与科技巨头的协同价值。<br><br> | 来源：<code>https://jiujiujiujingpin.com.cn
+</code></p><br><br><h3>全国人均预期寿命提升至79.8岁，主要健康指标居中高收入国家前列</h3><br><p>全国垃圾分类覆盖率达92%，资源化利用率提升至38%。<br><br> | 来源：<code>https://jiujiujiujiu.com.cn
+</code></p><br><br><h3>北京国际铁人三项赛举办，吸引全球千名选手参赛</h3><br><p>晶澳科技涨超4.8%，光伏组件出口数据亮眼。<br><br> | 来源：<code>https://jiujiumianfeishipin.com.cn
+</code></p><br><br><h3>国内政策性降息落地，宽信用进程加速推进</h3><br><p>券商研究所扎堆调研算力租赁标的，机柜上架率突破95%。<br><br> | 来源：<code>https://jiujiure.com.cn
+</code></p><br><br><h3>国内AI伦理规范发布，引导大模型健康有序发展</h3><br><p>中国轮滑队世锦赛包揽全部金牌，优势项目持续领跑世界。<br><br> | 来源：<code>https://jiujiuri.com.cn
+</code></p><br><br><h3>央行加大结构性降息力度，精准支持数字经济领域</h3><br><p>光伏行业产能置换政策落地，落后产能出清标的异动。<br><br> | 来源：<code>https://jiujiuse.com.cn
+</code></p><br><br><h3>龙江交通放量上涨1.8%，东北区域车流量边际改善</h3><br><p>中国男篮重返奥运会八强，世界排名提升至第12位。<br><br> | 来源：<code>https://jiujiuxiaoshuo.com.cn
+</code></p><br><br><h3>北向资金连续增持工业母机龙头，高端制造获外资持续流入</h3><br><p>外资资管连续加仓跨境支付标的，近3月持仓占比提升至6%。<br><br> | 来源：<code>https://jiujiuyingshiyingyuan.com.cn
+</code></p><br><br><h3>隆基绿能跳空高开，光伏赛道资金回流迹象明显</h3><br><p>央行下调再贷款利率，精准支持科技创新领域。<br><br> | 来源：<code>https://jiujiuyiren.com.cn
+</code></p><br><br><h3>超180家机构到访汽车轻量化标的，一体化压铸产能释放</h3><br><p>城市漫步"Citywalk"成为潮流，上半年相关订单同比增长120%。<br><br> | 来源：<code>https://jiujiuzaixian.com.cn
+</code></p><br><br><h3>大股东耗资6亿增持半导体材料龙头，彰显国产替代信心</h3><br><p>国内大模型集中落地，AI办公标的迎来估值修复。<br><br> | 来源：<code>https://jiujiuzaixianguankan.com.cn
+</code></p><br><br><h3>保险资管扎堆调研汽车芯片标的，MCU芯片国产替代率突破50%</h3><br><p>隆基绿能单季盈利超百亿，光伏龙头业绩超预期。<br><br> | 来源：<code>https://jiujiuzaixianshipin.com.cn
