@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分06秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>产业基金组团调研后集中增持存储模组龙头，合计投入超7亿</h3><br><p>北向资金连续增持工业母机龙头，高端制造获外资持续流入。<br><br> | 来源：<code>https://91-shipinzaixianguankan.com.cn
+</code></p><br><br><h3>海外资管组团调研智能驾驶标的，城市NOA落地节奏披露</h3><br><p>钛白粉开启新一轮涨价潮，全行业提价覆盖海内外市场。<br><br> | 来源：<code>https://91-tv.com.cn
+</code></p><br><br><h3>光伏组件出口创历史新高，光伏海外链标的走强</h3><br><p>国内低空文旅项目升温，热气球、滑翔伞体验订单同比暴涨。<br><br> | 来源：<code>https://91-wang.com.cn
+</code></p><br><br><h3>车载激光雷达企业登陆科创板，量产交付进度超市场预期</h3><br><p>鸭肉价格上涨12%，水禽养殖板块迎来行情。<br><br> | 来源：<code>https://91-www.cn
+</code></p><br><br><h3>北京君正车载存储优势：汽车电子赛道的高景气受益标的</h3><br><p>超200家机构到访数据要素龙头，数据确权商业模式落地。<br><br> | 来源：<code>https://91-zaixianguankan.com.cn
+</code></p><br><br><h3>登海种业玉米种子优势：国内玉米种子赛道的龙头价值</h3><br><p>中国中铁放量上涨3.0%，一带一路订单同比翻倍。<br><br> | 来源：<code>https://9170-guanfang-jinsha.com
+</code></p><br><br><h3>智慧景区全覆盖，全国5A景区全部实现刷脸入园智能导览</h3><br><p>国际铜价持续上行，铜业板块标的全线异动。<br><br> | 来源：<code>https://9170-jinsha-official.com
+</code></p><br><br><h3>长征国家文化公园全面建成，红色旅游年接待人次突破15亿</h3><br><p>固德威户用储能爆发，单季业绩预告超预期。<br><br> | 来源：<code>https://9170-mobile-login.com
+</code></p><br><br><h3>全球半导体产业周期复苏，销售额同比增长18%创历史新高</h3><br><p>外资单日扫货恒瑞医药9亿，创新药龙头外资持仓回升。<br><br> | 来源：<code>https://9170-sands-official.com
+</code></p><br><br><h3>招商公路平台化布局：全国公路网络的整合成长逻辑</h3><br><p>机构专用席位净买入长电科技1.9亿，封测龙头获长线资金加仓。<br><br> | 来源：<code>https://91cangku.cn
+</code></p><br><br><h3>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧</h3><br><p>全国餐饮营收上半年突破4万亿，夜间餐饮占比超60%。<br><br> | 来源：<code>https://91ci-yuan.com.cn
+</code></p><br><br><h3>超280家机构到访工业母机龙头，五轴机床量产进度超预期</h3><br><p>全国文旅数字化升级，超500家景区实现AR导览全覆盖。<br><br> | 来源：<code>https://91ciyuan.com.cn
+</code></p><br><br><h3>中国高尔夫球选手首次夺得美巡赛冠军，实现历史性突破</h3><br><p>广深铁路放量上涨3.1%，铁路客运收入回暖。<br><br> | 来源：<code>https://91ciyuanguanwangrukou.com.cn
+</code></p><br><br><h3>保险资管举牌绿电运营标的，长期配置价值获机构认可</h3><br><p>兆易创新涨超4.4%，存储芯片价格触底反弹。<br><br> | 来源：<code>https://91cncom.cn
+</code></p><br><br><h3>预制菜核心标的开启新股申购，B端渠道覆盖全国连锁餐饮</h3><br><p>青海湖暑期环湖游热度飙升，自驾游客占比超80%。<br><br> | 来源：<code>https://91cncom.com.cn
+</code></p><br><br><h3>生物育种产业化政策，转基因种业标的走强</h3><br><p>中国马术队首次获得亚运会金牌，马术运动实现零的突破。<br><br> | 来源：<code>https://91com.com.cn
+</code></p><br><br><h3>多地出台支持民营经济新政，破除市场准入隐性壁垒</h3><br><p>安徽建工涨超3.6%，长三角基建订单持续落地。<br><br> | 来源：<code>https://91con.cn
+</code></p><br><br><h3>中国女子排球队奥运夺冠，时隔12年再度站上最高领奖台</h3><br><p>QFII集中调研乳制品龙头，高端产品占比提升至45%。<br><br> | 来源：<code>https://91con.com.cn
+</code></p><br><br><h3>腾讯混元大模型企业服务升级，助力政务、金融行业数字化</h3><br><p>春节档票房创历史新高，影视传媒板块集体走强。<br><br> | 来源：<code>https://91cwang.cn
+</code></p><br><br><h3>游资知名席位联手买入中国船舶2亿，造船标的获资金追捧</h3><br><p>三元正极材料价格上调6%，锂电材料产业链景气回升。<br><br> | 来源：<code>https://91dizhiyongjiurukou.com.cn
