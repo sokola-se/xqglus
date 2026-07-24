@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分56秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>量子信息产业规划发布，量子通信标的全线拉升</h3><br><p>上半年全国新能源汽车电池出口同比增长40%。<br><br> | 来源：<code>https://dou-luodalumanhua.com.cn
+</code></p><br><br><h3>全球人工智能产业规模突破5万亿美元，中美占据主导地位</h3><br><p>保险资管举牌工业软件龙头，研发设计软件国产替代获重仓。<br><br> | 来源：<code>https://dou-yin.com.cn
+</code></p><br><br><h3>隆基绿能全球化布局：光伏龙头规避贸易壁垒的路径解析</h3><br><p>苏州园林暑期游客量突破150万人次，江南古典园林游受青睐。<br><br> | 来源：<code>https://doubaochengrenban.org.cn
+</code></p><br><br><h3>生猪收储政策启动，养殖板块迎来反弹催化</h3><br><p>钴价连续上涨13%，3C电池板块盈利提升。<br><br> | 来源：<code>https://douhuashipin.org.cn
+</code></p><br><br><h3>煤炭价格企稳回升8%，煤炭高股息标的盈利稳定</h3><br><p>多地调整最低工资标准，最高涨幅达11.5%惠及千万劳动者。<br><br> | 来源：<code>https://douhuashipinguanwang.org.cn
+</code></p><br><br><h3>洋河股份梦之蓝放量，单季业绩预告超预期</h3><br><p>金龙汽车海外客车出口：客车行业龙头的海外拓展逻辑。<br><br> | 来源：<code>https://douhuashipinrukouguanwang.org.cn
+</code></p><br><br><h3>钴价连续上涨13%，3C电池板块盈利提升</h3><br><p>威海暑期滨海游火爆，国际海水浴场日均客流超10万。<br><br> | 来源：<code>https://douhuashipinwangyeban.org.cn
+</code></p><br><br><h3>游资顶级席位打板中兴通讯2.2亿，通信标的获短线资金热炒</h3><br><p>隆基绿能单季盈利超百亿，光伏龙头业绩超预期。<br><br> | 来源：<code>https://douhuashipinzaixianbofang.org.cn
+</code></p><br><br><h3>海外资管组团调研智能驾驶标的，城市NOA落地节奏披露</h3><br><p>苏州园林暑期接待人次破500万，江南古典文旅持续走红。<br><br> | 来源：<code>https://douhuashipinzaixianguankan.org.cn
+</code></p><br><br><h3>东北振兴新举措出台，推动老工业基地产业转型升级</h3><br><p>大熊猫野生种群数量突破2000只，受威胁等级下调至易危。<br><br> | 来源：<code>https://doumanwangyeban.cn
+</code></p><br><br><h3>赛力斯单日大涨8.3%，问界新车型销量引爆市场</h3><br><p>药明康德单日涨超5%，CXO板块迎来情绪拐点。<br><br> | 来源：<code>https://dounianglishi.cn
+</code></p><br><br><h3>中国女子篮球WNBA选手韩旭率队闯入季后赛，表现惊艳</h3><br><p>国家统计局发布新动能指数，同比增长17%创新高。<br><br> | 来源：<code>https://doupojiebanyin.cn
+</code></p><br><br><h3>大金重工塔筒出口翻倍，单季业绩预告超预期</h3><br><p>小米汽车交付量超预期，小米汽车产业链全线爆发。<br><br> | 来源：<code>https://douyinapp.com.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持医药流通龙头，合计投入超6亿</h3><br><p>中国男子皮划艇队世锦赛夺冠，静水项目实现金牌零突破。<br><br> | 来源：<code>https://douyinapp.net.cn
+</code></p><br><br><h3>基金公司集体到访机器人控制器标的，国产控制器市占率提升</h3><br><p>宠物友好景区数量破千，携宠出游成为家庭消费新选择。<br><br> | 来源：<code>https://douyinchengrenban.cn
+</code></p><br><br><h3>国企改革三年行动收官，央企营收同比增长6.8%</h3><br><p>许继电气特高压订单落地，单季业绩预告超预期。<br><br> | 来源：<code>https://douyinduanshipin.com.cn
+</code></p><br><br><h3>宝钢股份涨超3.1%，板材价格企稳回升</h3><br><p>酱油价格单月上涨5%，调味品龙头盈利弹性释放。<br><br> | 来源：<code>https://douyinpro.cn
+</code></p><br><br><h3>中国女子摔跤队世锦赛包揽全部金牌，统治力无人能及</h3><br><p>海康威视企稳回升，AI安防赛道需求逐步回暖。<br><br> | 来源：<code>https://douyinshipin.com.cn
+</code></p><br><br><h3>绍兴推出“跟着课本游绍兴”线路，研学游覆盖超百万学生</h3><br><p>杭州亚运会一周年纪念活动举办，场馆全年接待健身人次破亿。<br><br> | 来源：<code>https://douyinwangyerukou.cn
+</code></p><br><br><h3>高标准农田建设规划，农田基建板块集体上涨</h3><br><p>美联储降息25BP符合市场预期，全球股市迎来普涨行情。<br><br> | 来源：<code>https://dumoguceshi.com.cn
