@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分14秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国城市轨道交通全部实现电气化，绿色出行比例超70%</h3><br><p>药明康德海外订单爆发，前三季度业绩预增超60%。<br><br> | 来源：<code>https://nan-tongwang.com.cn
+</code></p><br><br><h3>新疆交建一带一路优势：新疆区域基建的长期成长逻辑</h3><br><p>音乐节市场上半年演出超500场，年轻群体消费占比超80%。<br><br> | 来源：<code>https://nan-tongwangzhan.com.cn
+</code></p><br><br><h3>中国高尔夫球选手首次夺得美巡赛冠军，实现历史性突破</h3><br><p>东方盛虹放量上涨3.6%，EVA树脂需求持续向好。<br><br> | 来源：<code>https://nana-qingliang-ban.com.cn
+</code></p><br><br><h3>大股东耗资6亿增持半导体材料龙头，彰显国产替代信心</h3><br><p>洛阳龙门石窟暑期推出夜游项目，门票上线即秒空。<br><br> | 来源：<code>https://nangong-group-download.com
+</code></p><br><br><h3>中国飞镖队亚运会夺得奖牌，小众运动逐步走进大众视野</h3><br><p>江苏建工放量上涨3.3%，江苏区域基建投资回暖。<br><br> | 来源：<code>https://nangongqiubao.com.cn
+</code></p><br><br><h3>北向资金大幅增持比亚迪，AH股同步获外资加仓</h3><br><p>国产科幻电影票房突破50亿元，《流浪地球3》刷新纪录。<br><br> | 来源：<code>https://nannubaluobo.com.cn
+</code></p><br><br><h3>产业资本集中增持锂电铜箔龙头，极薄铜箔技术获资本布局</h3><br><p>机构+北向合力买入山西汾酒1.7亿，清香白酒龙头获资金布局。<br><br> | 来源：<code>https://nannuzuoaishipin.com.cn
+</code></p><br><br><h3>教育大模型落地全国万所学校，个性化辅导覆盖千万学生</h3><br><p>海洋强国建设新规划发布，海洋经济总量突破9万亿元。<br><br> | 来源：<code>https://nanrenhuanggong.cn
+</code></p><br><br><h3>全国城市建筑垃圾资源化利用率达70%，变废为宝生产建材</h3><br><p>工业大模型落地万座工厂，生产效率平均提升30%。<br><br> | 来源：<code>https://nanshengcaonusheng.com.cn
+</code></p><br><br><h3>1年期LPR下调5BP，实体经济融资成本稳步下行</h3><br><p>全国太湖蓝藻水华预警系统升级，提前7天精准预判。<br><br> | 来源：<code>https://nantong-wang.com.cn
+</code></p><br><br><h3>外资机构席位净买入双汇发展6400万，肉制品龙头获加仓</h3><br><p>社保基金新进智慧矿山龙头，布局煤矿智能化改造赛道。<br><br> | 来源：<code>https://nantonghucao.com.cn
+</code></p><br><br><h3>国内研学旅行市场规模破千亿，覆盖超5000万中小学生</h3><br><p>散户最容易踩的坑：涨一点就卖，跌一点就割，最后两头亏。<br><br> | 来源：<code>https://nantongwangwang.com.cn
+</code></p><br><br><h3>广汽集团涨超4.8%，埃安品牌月销破5万</h3><br><p>中国中铁一带一路布局：海外基建订单的长期增长逻辑。<br><br> | 来源：<code>https://nencaowang.com.cn
+</code></p><br><br><h3>小米汽车交付量超预期，小米汽车产业链全线爆发</h3><br><p>游资顶级席位打板亨通光电5400万，海缆标的获热炒。<br><br> | 来源：<code>https://new-19-sports.com.cn
+</code></p><br><br><h3>全球新材料市场规模突破5万亿美元，支撑高端制造发展</h3><br><p>央行下调再贷款利率，精准支持科技创新领域。<br><br> | 来源：<code>https://new-850-official.com
+</code></p><br><br><h3>薯片产品价格上调4%，零食板块迎来涨价催化</h3><br><p>北方华创涨超6.3%，半导体设备国产替代进度提速。<br><br> | 来源：<code>https://new-8x8.com.cn
+</code></p><br><br><h3>鸡肉价格单月上涨15%，白羽鸡板块盈利弹性释放</h3><br><p>华为昇腾算力集群规模破万卡，支撑超百家大模型企业训练。<br><br> | 来源：<code>https://new-9191.com.cn
+</code></p><br><br><h3>全国滑板锦标赛举办，年轻选手展现街头运动活力</h3><br><p>北向资金大额增持中国平安，保险龙头外资持仓创阶段新高。<br><br> | 来源：<code>https://new-91cc.com.cn
+</code></p><br><br><h3>全国雪豹种群数量突破5000只，高原生态系统健康稳定</h3><br><p>QFII集中调研快递物流龙头，单票盈利创历史新高。<br><br> | 来源：<code>https://new-91cn.com.cn
+</code></p><br><br><h3>中国跆拳道队世锦赛斩获5金，金牌数位列奖牌榜第一</h3><br><p>5年期LPR下调带动地产链估值修复，家居家电板块集体上涨。<br><br> | 来源：<code>https://new-91com.com.cn
