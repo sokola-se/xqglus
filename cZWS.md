@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分01秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>东方电气风电设备技术：国内能源装备龙头的多赛道布局</h3><br><p>社保基金现身工业AI龙头调研，行业渗透率数据首次公开。<br><br> | 来源：<code>https://od-sports-pro.com.cn
+</code></p><br><br><h3>三一重工突破半年线，中期趋势逐步转强</h3><br><p>保障性住房建设规划，保障房产业链集体上涨。<br><br> | 来源：<code>https://open-site-vip.com.cn
+</code></p><br><br><h3>中际旭创再创阶段新高，趋势加速下的持仓策略</h3><br><p>招商银行沿20日均线上行，稳健标的的持仓节奏。<br><br> | 来源：<code>https://oumei-a-v.com
+</code></p><br><br><h3>承德避暑山庄暑期日均客流超6万，皇家文旅体验受追捧</h3><br><p>多地推出城市更新专项政策，年内撬动投资超万亿元。<br><br> | 来源：<code>https://oumeijingpin.com.cn
+</code></p><br><br><h3>全国祁连山生态保护修复完成，矿区全部恢复植被覆盖</h3><br><p>闽南文化生态保护区建设成效显著，非遗活态传承活力迸发。<br><br> | 来源：<code>https://oumeiwang.com.cn
+</code></p><br><br><h3>正泰电器户用光伏装机超预期，前三季度业绩预增超25%</h3><br><p>中国中车异动拉升，一带一路订单持续释放。<br><br> | 来源：<code>https://oumeiyiquerqu.com.cn
+</code></p><br><br><h3>北方稀土异动拉升5.4%，稀土产品价格反弹</h3><br><p>海大集团研发体系：水产饲料配方技术的持续迭代能力。<br><br> | 来源：<code>https://p-zhanshipin.com.cn
+</code></p><br><br><h3>自驾游市场上半年订单同比增长55%，房车旅行成为新选择</h3><br><p>东方雨虹企稳反弹4.2%，地产链需求边际改善。<br><br> | 来源：<code>https://pa-papashipin.com.cn
+</code></p><br><br><h3>保利发展央企地产优势：融资成本与资源获取的双重优势</h3><br><p>美联储降息预期提前落地，黄金价格创历史新高。<br><br> | 来源：<code>https://paomianfanroude.com.cn
+</code></p><br><br><h3>阿里通义千问3.0版本上线，代码生成能力超越国际同类产品</h3><br><p>外资资管连续加仓风电轴承龙头，大兆瓦轴承获外资重仓。<br><br> | 来源：<code>https://papa-shipin.com.cn
+</code></p><br><br><h3>国产历史剧细节考究，多部作品成为全网热议文化现象</h3><br><p>中国桥牌队世锦赛夺得冠军，高端智力运动跻身世界前列。<br><br> | 来源：<code>https://pennaishuidongman.com.cn
+</code></p><br><br><h3>机构资金集中买入海螺水泥7300万，水泥龙头获机构抱团</h3><br><p>产业基金组团调研后集中增持光模块企业，合计投入超10亿。<br><br> | 来源：<code>https://pg-dianzi-pingtai.com.cn
+</code></p><br><br><h3>广州马拉松开跑，参赛选手破3万全马完赛率创新高</h3><br><p>北方稀土稀土全产业链布局：国内稀土龙头的政策红利。<br><br> | 来源：<code>https://pg-ent-web.com.cn
+</code></p><br><br><h3>恒瑞医药创新药管线：研发投入进入收获期的业绩展望</h3><br><p>洛阳推出“汉服游”配套服务，全城汉服租赁店超千家。<br><br> | 来源：<code>https://pg-guan-wang.com.cn
+</code></p><br><br><h3>国铁集团旗下标的异动，铁路改革预期持续升温</h3><br><p>啤酒开启新一轮涨价潮，啤酒板块盈利弹性释放。<br><br> | 来源：<code>https://pg-mianfei-shiwan.com.cn
+</code></p><br><br><h3>中东产油国延长减产协议，国际油价维持温和上涨态势</h3><br><p>福州三坊七巷暑期客流超1500万，闽派文旅产品热销。<br><br> | 来源：<code>https://pg-play-online.com.cn
+</code></p><br><br><h3>北京中轴线申遗进入冲刺阶段，千年古都风貌全面保护</h3><br><p>中超联赛第20轮，上海申花6-0大胜对手稳居积分榜榜首。<br><br> | 来源：<code>https://pg-sim-online.com.cn
+</code></p><br><br><h3>控股股东耗资2.5亿增持储能电池标的，彰显海外订单信心</h3><br><p>明阳智能大兆瓦风机优势：海上风电赛道的龙头领先性。<br><br> | 来源：<code>https://pg-zhengtu-guoji.com
+</code></p><br><br><h3>头部公募调研汽车电子标的，车规芯片出货量环比大增</h3><br><p>2026年全球经济增速达3.2%，实现温和复苏稳步增长。<br><br> | 来源：<code>https://pianziziyuanwangzhan.com.cn
+</code></p><br><br><h3>循环经济发展规划，资源回收标的全线拉升</h3><br><p>杭州西湖暑期日均客流超30万，智慧景区系统保障游览秩序。<br><br> | 来源：<code>https://picacg-guan-wang.com.cn
