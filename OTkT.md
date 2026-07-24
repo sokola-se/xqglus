@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>储能大项目集中并网，大储板块迎来行情催化</h3><br><p>保险资管举牌工业软件龙头，研发设计软件国产替代获重仓。<br><br> | 来源：<code>https://dianying-zaixianguankanmianfei.com.cn
+</code></p><br><br><h3>醋产品价格上调6%，食醋板块盈利改善</h3><br><p>大金重工放量上涨5.7%，风电塔筒全球份额领先。<br><br> | 来源：<code>https://dianyingcang.com.cn
+</code></p><br><br><h3>新能源汽车销量上半年突破550万辆，市场渗透率达48%</h3><br><p>中国建筑涨超2.8%，基建订单持续饱满。<br><br> | 来源：<code>https://dingsheng-5262-web.com
+</code></p><br><br><h3>德业股份储能逆变器放量，前三季度业绩预增超100%</h3><br><p>海参价格单月上涨18%，海产养殖龙头盈利提升。<br><br> | 来源：<code>https://diyiban-zhu.cn
+</code></p><br><br><h3>国产综艺节目海外版权输出量同比增长60%</h3><br><p>中国乒乓球队包揽世乒赛全部金牌，统治力延续数十年。<br><br> | 来源：<code>https://diyici-derenqi.com.cn
+</code></p><br><br><h3>绿色建材认证政策，绿色建材板块走强</h3><br><p>镍价单月上涨11%，不锈钢板块迎来涨价催化。<br><br> | 来源：<code>https://diyiciderenqi.com.cn
+</code></p><br><br><h3>保险资管连续增持光伏胶膜标的，长期配置光伏核心资产</h3><br><p>阳光电源放量上涨6.5%，海外逆变器订单爆发。<br><br> | 来源：<code>https://diyiciderenqidongman.com.cn
+</code></p><br><br><h3>普惠小微贷款利率进一步下行，中小微企业盈利改善</h3><br><p>头部机构组团到访核电设备龙头，新机组中标订单披露。<br><br> | 来源：<code>https://diyicirenqi.com.cn
+</code></p><br><br><h3>通威股份硅料成本优势：光伏全产业链龙头的盈利韧性</h3><br><p>外资单日扫货招商银行10亿，银行龙头外资持仓稳步提升。<br><br> | 来源：<code>https://diyifuli.cn
+</code></p><br><br><h3>国产AI芯片算力突破256TOPS，支撑大模型高效运行</h3><br><p>美伊冲突出现缓和信号，双方开启间接谈判寻求停火路径。<br><br> | 来源：<code>https://diyifuli.com.cn
+</code></p><br><br><h3>全国固定资产投资同比增长5.1%，制造业投资增速领先</h3><br><p>功率半导体价格上调6%，IGBT板块迎来涨价催化。<br><br> | 来源：<code>https://diyifulidaohang.cn
+</code></p><br><br><h3>中国田径队世锦赛斩获3金，男子跳远打破尘封20年纪录</h3><br><p>黄山暑期游客量突破250万人次，山岳景区预约制度优化体验。<br><br> | 来源：<code>https://diyixueshufulidaohangwang.cn
+</code></p><br><br><h3>比亚迪全产业链布局分析：从电池到整车的协同优势</h3><br><p>中国平安综合金融版图：保险+银行+投资的协同优势。<br><br> | 来源：<code>https://dizhifabuye.com.cn
+</code></p><br><br><h3>外资机构集中调研短视频出海标的，海外用户规模破亿</h3><br><p>时代新材放量上涨4.0%，轨道交通零部件订单高增。<br><br> | 来源：<code>https://dl-kaiyun-app.com.cn
+</code></p><br><br><h3>北向资金连续增持养老产业标的，银发经济赛道获外资流入</h3><br><p>地方国资战略入股人形电机龙头，助力核心零部件国产化。<br><br> | 来源：<code>https://dl-kaiyun-pro.com.cn
+</code></p><br><br><h3>北向资金大额增持中兴通讯，通信龙头外资持仓环比大增</h3><br><p>国产游戏上半年出海营收突破80亿美元，文化输出能力增强。<br><br> | 来源：<code>https://dl-kaiyun-sports.com.cn
+</code></p><br><br><h3>国内降息政策出台，地产链标的集体上涨</h3><br><p>中国马术队首次获得亚运会金牌，马术运动实现零的突破。<br><br> | 来源：<code>https://donghuatongren.com.cn
+</code></p><br><br><h3>跨境游持续升温，中国游客赴东南亚人次同比暴涨200%</h3><br><p>保险资管连续增持AI安防龙头，海外订单高增获机构认可。<br><br> | 来源：<code>https://dongjingre.com.cn
+</code></p><br><br><h3>量子通信标的启动申购，干线网络建设订单同比翻倍</h3><br><p>机构资金联手买入派能科技1.7亿，储能龙头获机构抱团。<br><br> | 来源：<code>https://dongman-meinu-bei-cao.com.cn
+</code></p><br><br><h3>鸭肉价格上涨12%，水禽养殖板块迎来行情</h3><br><p>中超联赛第20轮，上海申花6-0大胜对手稳居积分榜榜首。<br><br> | 来源：<code>https://dongman-zaixianguankan.com.cn
