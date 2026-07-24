@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分08秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国内亲子乐园新增超1000家，沉浸式体验项目成标配</h3><br><p>全面降准叠加LPR下调，市场流动性环境显著优化。<br><br> | 来源：<code>https://chaopengzaixian.com.cn
+</code></p><br><br><h3>知名私募大手笔增持储能电池标的，海外户储订单获资本布局</h3><br><p>外资资管集中调研元宇宙内容龙头，线下体验店扩张节奏。<br><br> | 来源：<code>https://cheng-renwangzhan.com.cn
+</code></p><br><br><h3>外资资管连续加仓CXO龙头，近3月持仓占比提升至7%</h3><br><p>中国女子摔跤队世锦赛包揽全部金牌，统治力无人能及。<br><br> | 来源：<code>https://cheng91.cn
+</code></p><br><br><h3>阳光电源技术迭代能力：逆变器龙头的全球竞争力</h3><br><p>体育产业消费刺激政策，体育消费标的全线异动。<br><br> | 来源：<code>https://chengnian91cc.cn
+</code></p><br><br><h3>万科A异动，地产链政策宽松预期持续升温</h3><br><p>中国垒球队获得亚运会银牌，项目普及度快速提升。<br><br> | 来源：<code>https://chengren-free-web.com.cn
+</code></p><br><br><h3>小鹏汽车单季交付破3万，业绩亏损大幅收窄</h3><br><p>产业资本连续增持储能温控龙头，产业链上下游协同布局。<br><br> | 来源：<code>https://chengren-manhua.com.cn
+</code></p><br><br><h3>低空经济发展规划出台，低空经济标的拉升</h3><br><p>华友钴业异动拉升5.3%，新能源金属需求回暖。<br><br> | 来源：<code>https://chengren-riben-yiquerqu.com.cn
+</code></p><br><br><h3>全国抽水蓄能电站装机容量突破8000万千瓦，储能能力提升</h3><br><p>机构专用席位大额买入招商银行2.5亿，银行龙头获机构增持。<br><br> | 来源：<code>https://chengren-wangzhan.com.cn
+</code></p><br><br><h3>赣锋锂业技术储备：固态电池商业化的领先优势</h3><br><p>保险资管扎堆调研航空发动机标的，量产交付进度引关注。<br><br> | 来源：<code>https://chengrencn.cn
+</code></p><br><br><h3>国内AI服务器出货量上半年同比增长120%，产业链全面爆发</h3><br><p>多地推出稳外贸新政，出口退税速度压缩至3个工作日内。<br><br> | 来源：<code>https://chengrendouman-zh.com.cn
+</code></p><br><br><h3>全国马术赛事超百场，马术运动从小众走向大众</h3><br><p>低空经济龙头登陆创业板，eVTOL适航认证进度成核心看点。<br><br> | 来源：<code>https://chengrenduanshipin.cn
+</code></p><br><br><h3>拉美多国签署货币互换协议，减少对美元依赖</h3><br><p>中国围棋选手夺得世界冠军，连续十年保持世界第一。<br><br> | 来源：<code>https://chengrenjiaoyu.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研车载芯片龙头，车规级认证进度超预期</h3><br><p>中天科技海缆+储能协同：多元化能源企业的成长逻辑。<br><br> | 来源：<code>https://chengrenjiujiu.com.cn
+</code></p><br><br><h3>派能科技户用储能爆发，单季业绩预告超预期</h3><br><p>全国商品房待售面积同比下降4.3%，库存去化周期回归合理区间。<br><br> | 来源：<code>https://chengrenmianfeiwangzhan.com.cn
+</code></p><br><br><h3>云南暑期游订单破3000万，文旅收入同比增长85%</h3><br><p>中国男子网球选手闯入ATP巡回赛决赛，创历史最佳排名。<br><br> | 来源：<code>https://chengrenwang.com.cn
+</code></p><br><br><h3>产业基金大手笔增持国产EDA企业，助力核心技术研发突破</h3><br><p>北向资金单日净流入超150亿，降息后外资加速入场。<br><br> | 来源：<code>https://chengrenyingyuanwang.com.cn
+</code></p><br><br><h3>产业基金大手笔增持国产EDA企业，助力核心技术研发突破</h3><br><p>锂电铜箔价格上涨4%，铜箔龙头盈利边际改善。<br><br> | 来源：<code>https://chengrenzaixian.com.cn
+</code></p><br><br><h3>5年期LPR下调带动地产链估值修复，家居家电板块集体上涨</h3><br><p>晶澳科技全球化运营：光伏组件龙头的海外市场份额扩张。<br><br> | 来源：<code>https://chengrenzhibo.cn
+</code></p><br><br><h3>全国夜间文旅消费集聚区破200个，点亮城市夜经济</h3><br><p>长沙五一广场暑期夜间客流超25万，文和友等网红店排号超千桌。<br><br> | 来源：<code>https://chi-gua-shipin.com.cn
+</code></p><br><br><h3>全国医保目录新增126种新药，涵盖多款罕见病特效药</h3><br><p>全国会展经济快速复苏，上半年展览场次同比增长45%。<br><br> | 来源：<code>https://chong-tian.com.cn
