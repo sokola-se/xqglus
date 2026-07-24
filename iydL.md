@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分13秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>QFII大幅加仓IDC龙头，海外资金看好AI算力需求爆发</h3><br><p>农业机械化推广政策，农机装备板块全线异动。<br><br> | 来源：<code>https://h5-mitaoshipin.com.cn
+</code></p><br><br><h3>2026年全球经济增速达3.2%，实现温和复苏稳步增长</h3><br><p>中国五子棋队世锦赛包揽金牌，智力运动版图持续扩大。<br><br> | 来源：<code>https://haideshirenqi.com.cn
+</code></p><br><br><h3>知名私募调研钙钛矿设备标的，核心设备交付周期缩短</h3><br><p>全国祁连山生态保护修复完成，矿区全部恢复植被覆盖。<br><br> | 来源：<code>https://haideshirenqidongman.com.cn
+</code></p><br><br><h3>超230家机构到访工业软件龙头，研发设计软件付费转化率</h3><br><p>钠离子电池材料价格上涨8%，钠电池产业链盈利优化。<br><br> | 来源：<code>https://haijiao-luntan.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持光模块企业，合计投入超10亿</h3><br><p>中兴通讯通信技术积累：6G时代的核心竞争力展望。<br><br> | 来源：<code>https://haijiao-shequ.com.cn
+</code></p><br><br><h3>上半年全国机器人产量同比增长25%，智能制造加速推进</h3><br><p>广州珠江夜游暑期航班加密，日均接待游客超5万人次。<br><br> | 来源：<code>https://haijiao-wang.com.cn
+</code></p><br><br><h3>青岛暑期滨海旅游订单同比增长40%，海滨城市人气高涨</h3><br><p>保障性住房建设规划，保障房产业链集体上涨。<br><br> | 来源：<code>https://haijiaoluanlun.com.cn
+</code></p><br><br><h3>液冷技术标的开启新股申购，AI数据中心液冷订单爆发式增长</h3><br><p>央行下调再贷款再贴现利率，小微和三农融资成本下行。<br><br> | 来源：<code>https://haijiaoshequdizhi.cn
+</code></p><br><br><h3>海尔智家全球化品牌布局：多品牌矩阵下的全球份额扩张</h3><br><p>西藏暑期游热度创新高，进藏游客人次同比增长130%。<br><br> | 来源：<code>https://haijiaoshequluanlun.cn
+</code></p><br><br><h3>万华化学研发投入优势：化工龙头持续技术迭代的底层逻辑</h3><br><p>保险资管扎堆调研汽车芯片标的，MCU芯片国产替代率突破50%。<br><br> | 来源：<code>https://haijiaoshequshipin.cn
+</code></p><br><br><h3>北向资金举牌冷链物流标的，生鲜配送网络扩张获外资流入</h3><br><p>广汽集团涨超4.8%，埃安品牌月销破5万。<br><br> | 来源：<code>https://haijiaozuixindizhi.cn
+</code></p><br><br><h3>锦浪科技组串式逆变器技术：海外市场份额快速扩张逻辑</h3><br><p>新希望异动拉升3.9%，生猪出栏量持续高增。<br><br> | 来源：<code>https://han-man.cn
+</code></p><br><br><h3>恒瑞医药异动拉升5.6%，创新药新品贡献增量</h3><br><p>社保基金新进生物育种标的，布局农业科技长期成长。<br><br> | 来源：<code>https://hanguo-lunlipian.com.cn
+</code></p><br><br><h3>电源芯片价格上涨7%，模拟芯片板块景气回升</h3><br><p>中远海控异动拉升3.3%，集运运价阶段性反弹。<br><br> | 来源：<code>https://hanguolunli.com.cn
+</code></p><br><br><h3>腾讯云大模型生态开放，接入超十万第三方应用</h3><br><p>央行逆回购操作利率下调，短期资金面维持宽松。<br><br> | 来源：<code>https://hanguowang.com.cn
+</code></p><br><br><h3>云从科技人机协同大模型3.0发布，赋能人机交互场景</h3><br><p>外资单日扫货阳光电源15亿，逆变器龙头外资持仓创新高。<br><br> | 来源：<code>https://hanoumeiri.com.cn
+</code></p><br><br><h3>恒瑞医药创新药放量，前三季度业绩预增超40%</h3><br><p>深股通席位单日买入海天味业6100万，调味品标的增持。<br><br> | 来源：<code>https://hanri.com.cn
+</code></p><br><br><h3>坚果产品价格上涨5%，休闲食品龙头盈利改善</h3><br><p>阳光电源研发投入：逆变器龙头持续保持技术领先的原因。<br><br> | 来源：<code>https://hanxiucaoyanjiuyuan.cn
+</code></p><br><br><h3>新能源汽车购置税减免延期，整车板块集体走强</h3><br><p>新增开户数环比大增，互联网券商板块全线走强。<br><br> | 来源：<code>https://hao-lianxi.com.cn
+</code></p><br><br><h3>保险资管扎堆调研航空发动机标的，量产交付进度引关注</h3><br><p>3D生成大模型技术突破，1分钟生成高精度工业模型。<br><br> | 来源：<code>https://haohuaidongman.com.cn
