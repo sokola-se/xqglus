@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分16秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>卓胜微放量拉升5.7%，射频芯片行业景气度回升</h3><br><p>东盟经济一体化进程加速，2026年区域内贸易占比升至35%。<br><br> | 来源：<code>https://worldcup-jingcai-entry.com
+</code></p><br><br><h3>光伏玻璃价格单月上涨8%，玻璃龙头盈利弹性大幅释放</h3><br><p>闻泰科技异动拉升4.9%，半导体ODM业务盈利修复。<br><br> | 来源：<code>https://worldcup-jingcai-event.com
+</code></p><br><br><h3>六氟磷酸锂价格单月上涨10%，电解液龙头盈利修复</h3><br><p>浪潮信息放量上涨7.4%，AI服务器出货量超预期。<br><br> | 来源：<code>https://worldcup-jingcai-platform.com
+</code></p><br><br><h3>河南卫视中国节日系列节目全网播放量突破200亿次</h3><br><p>天津建投异动拉升2.8%，天津基建投资持续增长。<br><br> | 来源：<code>https://worldcup-peifulv-top.com
+</code></p><br><br><h3>全面降准0.25个百分点，释放长期资金5000亿</h3><br><p>天然气价格季节性上涨15%，燃气运营板块迎来行情。<br><br> | 来源：<code>https://worldcup-qunamai-web.com
+</code></p><br><br><h3>人民币汇率升值叠加美联储降息，航空造纸板块集体异动</h3><br><p>头部券商调研固态电池标的，下一代技术落地时间表曝光。<br><br> | 来源：<code>https://worldcup2026-guanwang-web.com
+</code></p><br><br><h3>北方稀土政策壁垒：稀土开采总量控制下的稀缺性价值</h3><br><p>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现。<br><br> | 来源：<code>https://worldcup2026-official-cn.com
+</code></p><br><br><h3>公募基金集中调研IDC龙头，AI算力上架率创历史新高</h3><br><p>上半年全国跨境电商进出口额同比增长15%，新业态活力迸发。<br><br> | 来源：<code>https://wu-liaodonghua.com.cn
+</code></p><br><br><h3>全球农业科技市场规模突破3000亿美元，智慧农业普及</h3><br><p>全国PPI同比由负转正，工业企业盈利预期持续改善。<br><br> | 来源：<code>https://wu-se.com.cn
+</code></p><br><br><h3>养老金新进光伏逆变器标的，海外市占率提升获长期配置</h3><br><p>国际铜价持续上行，铜业板块标的全线异动。<br><br> | 来源：<code>https://wudaohang.com.cn
+</code></p><br><br><h3>全球半导体产业周期复苏，销售额同比增长18%创历史新高</h3><br><p>保险资管连续增持AI安防龙头，海外订单高增获机构认可。<br><br> | 来源：<code>https://wufa-jujue-de-ta-hanju.com.cn
+</code></p><br><br><h3>存款利率下调推动居民储蓄搬家，权益市场增量资金入场</h3><br><p>东莞控股放量上涨2.2%，珠三角车流量高增。<br><br> | 来源：<code>https://wukongsaichang.com.cn
+</code></p><br><br><h3>机构席位大额买入拓普集团9200万，零部件龙头获长线布局</h3><br><p>工业硅价格触底反弹15%，光伏硅料成本端压力下降。<br><br> | 来源：<code>https://wumaliuchu.net.cn
+</code></p><br><br><h3>沪股通席位单日买入金风科技1亿，风电龙头获外资增持</h3><br><p>当升科技正极材料海外布局：高镍正极的全球份额扩张。<br><br> | 来源：<code>https://wumantiantang.com.cn
+</code></p><br><br><h3>美联储降息后大宗商品集体上涨，有色板块全线异动</h3><br><p>超150家机构到访工业机器人标的，产能利用率突破90%。<br><br> | 来源：<code>https://wumariben.com.cn
+</code></p><br><br><h3>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%</h3><br><p>全球农业科技市场规模突破3000亿美元，智慧农业普及。<br><br> | 来源：<code>https://wumazhongzi.net.cn
+</code></p><br><br><h3>海参价格单月上涨18%，海产养殖龙头盈利提升</h3><br><p>海螺水泥成本控制能力：水泥行业龙头的长期盈利韧性。<br><br> | 来源：<code>https://wushipinwangzhanmianfeizaixianguankan.cn
+</code></p><br><br><h3>实控人兜底式增持固态电池企业，员工响应参与比例超90%</h3><br><p>超250家机构到访AI大模型企业，ToB付费转化率超预期。<br><br> | 来源：<code>https://wushipinzaixian.cn
+</code></p><br><br><h3>全国无偿献血人次突破2000万，临床用血全部来自自愿捐献</h3><br><p>全国东北虎种群数量突破70只，野生虎栖息地持续扩大。<br><br> | 来源：<code>https://wutenglan.com.cn
+</code></p><br><br><h3>中国水球队世锦赛闯入八强，水上集体项目进步显著</h3><br><p>市场永远不缺机会，缺的是耐心等待属于自己的机会。<br><br> | 来源：<code>https://wuwushipinzaixianguankan.cn
