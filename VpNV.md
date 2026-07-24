@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>派能科技户用储能爆发，单季业绩预告超预期</h3><br><p>QFII集中调研医药流通龙头，院外市场拓展节奏披露。<br><br> | 来源：<code>https://shuimitao-shipin.com.cn
+</code></p><br><br><h3>中国滑板队奥运会夺得银牌，新兴项目快速崛起</h3><br><p>赛力斯商业模式拆解：华为深度赋能下的整车成长逻辑。<br><br> | 来源：<code>https://shuimitaowangzhan.com.cn
+</code></p><br><br><h3>锦浪科技逆变器出口翻倍，前三季度业绩预增超90%</h3><br><p>百亿私募组团调研碳纤维企业，风电领域应用占比突破60%。<br><br> | 来源：<code>https://shuixian-zhibo.com.cn
+</code></p><br><br><h3>头部券商到访酒店连锁龙头，RevPAR恢复至2019年120%</h3><br><p>中国铁人三项队亚洲杯夺冠，耐力项目实力跻身亚洲前列。<br><br> | 来源：<code>https://shunudonghua.com.cn
+</code></p><br><br><h3>职业教育法实施一周年，新增100所应用型技术大学</h3><br><p>北向资金连续加仓海康威视，AI安防龙头获外资持续布局。<br><br> | 来源：<code>https://si-hu.com.cn
+</code></p><br><br><h3>香港高校内地招生扩容500名额，新增大湾区相关特色专业</h3><br><p>全国古籍保护工程完成，超3000万册古籍得到妥善修复。<br><br> | 来源：<code>https://si-huyingyuan.com.cn
+</code></p><br><br><h3>存款利率下调后居民储蓄搬家，A股新增开户数环比大增</h3><br><p>保险资管连续增持酒店连锁龙头，消费复苏获机构长期配置。<br><br> | 来源：<code>https://si-huzaixianguankan.com.cn
+</code></p><br><br><h3>多地景区推出“一票通”联票，覆盖周边十余景点让利游客</h3><br><p>5年期以上LPR大幅下调20BP，地产链板块全线异动。<br><br> | 来源：<code>https://sibada-daren-ban-mantianxing-xingchen.com.cn
+</code></p><br><br><h3>2026年全国高考报名人数1391万，多地新增AI相关专业招生</h3><br><p>中国男子射箭队世锦赛团体夺冠，打破韩国长期垄断。<br><br> | 来源：<code>https://sigua-shipin.cn
+</code></p><br><br><h3>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现</h3><br><p>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发。<br><br> | 来源：<code>https://siguavideos.cn
+</code></p><br><br><h3>广州珠江夜游暑期航班加密，日均接待游客超5万人次</h3><br><p>央行加大逆回购操作并下调利率，短期流动性持续充裕。<br><br> | 来源：<code>https://siji-she.org.cn
+</code></p><br><br><h3>全球5G用户突破30亿，中国市场占比超一半</h3><br><p>知名私募大手笔增持汽车轻量化标的，持仓占比突破4%。<br><br> | 来源：<code>https://sijipianku.org.cn
+</code></p><br><br><h3>保险资管连续增持AI安防龙头，海外订单高增获机构认可</h3><br><p>游资知名席位联手买入中际旭创5亿，光模块龙头获热炒。<br><br> | 来源：<code>https://sijishe.org.cn
+</code></p><br><br><h3>国产悬疑小说出海热销，海外读者追捧中国推理故事</h3><br><p>QFII大幅加仓光伏支架标的，跟踪支架海外渗透率提升获看好。<br><br> | 来源：<code>https://siyingyuanhu.com.cn
+</code></p><br><br><h3>QFII集中调研休闲食品龙头，线下渠道复购率数据公开</h3><br><p>北向资金单日净流入超150亿，降息后外资加速入场。<br><br> | 来源：<code>https://slghuangyou.com.cn
+</code></p><br><br><h3>文化产业扶持政策，文化传媒板块全线异动</h3><br><p>游资知名席位联手买入中国船舶2亿，造船标的获资金追捧。<br><br> | 来源：<code>https://slghuangyoutuijian.com.cn
+</code></p><br><br><h3>中国交建港口航道优势：全球港口建设龙头的核心壁垒</h3><br><p>多式联运示范工程落地，物流枢纽板块走强。<br><br> | 来源：<code>https://slgyouxiwangzhan.com.cn
+</code></p><br><br><h3>首套房贷款利率突破2.9%，刚需购房成本创历史新低</h3><br><p>全国国民体质达标率达90%，国民身体素质稳步提升。<br><br> | 来源：<code>https://smtiaojiao.com.cn
+</code></p><br><br><h3>网络安全政策升级，网安板块集体上涨</h3><br><p>多地推出城市更新专项政策，年内撬动投资超万亿元。<br><br> | 来源：<code>https://song6yuan-tixian-vip.com
+</code></p><br><br><h3>美联储连续第二次降息，北向资金单日净流入超百亿</h3><br><p>1年期LPR下调10BP，实体经济融资成本进一步下行。<br><br> | 来源：<code>https://sports-app-pro.com.cn
