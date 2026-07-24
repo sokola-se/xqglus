@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分01秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>陕西建工异动拉升3.5%，西北基建订单持续落地</h3><br><p>华为昇腾算力集群规模破万卡，支撑超百家大模型企业训练。<br><br> | 来源：<code>www.asiaillustrator.com
+</code></p><br><br><h3>电感产品价格上涨3%，电子全产业链盈利优化</h3><br><p>国家集采冠脉支架降价后，全国手术量同比增长30%惠及患者。<br><br> | 来源：<code>www.ary-eye.com
+</code></p><br><br><h3>2026年上半年国内旅游人次突破30亿，同比增长18%</h3><br><p>国产光刻机交付突破，半导体设备板块全线大涨。<br><br> | 来源：<code>www.dearain.cn
+</code></p><br><br><h3>北向资金大额增持长安汽车，自主车企外资持仓创年内新高</h3><br><p>社保基金新进重仓钙钛矿光伏标的，持仓占比达4.2%。<br><br> | 来源：<code>www.boorman.cn
+</code></p><br><br><h3>北向资金连续增持智能驾驶龙头，近1月持仓增幅超30%</h3><br><p>生物医药产业创新政策，CXO板块全线异动。<br><br> | 来源：<code>www.zhuweiguoji.cn
+</code></p><br><br><h3>华为Mate70销量破千万，消费电子产业链全线异动</h3><br><p>电解铝价格突破2万元/吨，铝业上市公司盈利弹性释放。<br><br> | 来源：<code>www.yuzt.cn
+</code></p><br><br><h3>外资资管连续加仓CXO龙头，近3月持仓占比提升至7%</h3><br><p>北向资金大额扫货恩捷股份1.4亿，隔膜龙头获外资流入。<br><br> | 来源：<code>www.dg-hhjx.cn
+</code></p><br><br><h3>国产美食纪录片全网播放量突破180亿，舌尖上的中国系列持续更新</h3><br><p>财政部新增专项债限额1.5万亿元，重点支持基建项目建设。<br><br> | 来源：<code>www.6gt8.cn
+</code></p><br><br><h3>通威股份硅料产能优势：低成本产能释放下的行业格局</h3><br><p>保险资管扎堆调研CRO龙头，创新药管线临床数据披露。<br><br> | 来源：<code>www.gzsyd.cn
+</code></p><br><br><h3>海产品全产业链涨价，水产板块全面异动</h3><br><p>全国居民人均可支配收入同比增长6.2%，跑赢GDP增速。<br><br> | 来源：<code>www.xinyucai.cn
+</code></p><br><br><h3>宁德时代动力电池技术：麒麟电池+M3P的技术领先性</h3><br><p>人民币汇率大幅升值，航空造纸板块集体上涨。<br><br> | 来源：<code>www.edubee.cn
+</code></p><br><br><h3>全国城市马拉松赛事数量突破1500场，覆盖所有省份</h3><br><p>故宫博物院暑期门票秒空，日均接待游客突破8万人次。<br><br> | 来源：<code>www.rlgps.cn
+</code></p><br><br><h3>硅锰价格单月上涨9%，铁合金板块盈利改善</h3><br><p>鸡蛋价格季节性上涨10%，蛋鸡养殖板块盈利改善。<br><br> | 来源：<code>www.tlgsb.cn
+</code></p><br><br><h3>华友钴业异动拉升5.3%，新能源金属需求回暖</h3><br><p>智慧矿山标的登陆北交所，煤矿智能化改造订单同比翻倍。<br><br> | 来源：<code>www.btnrl.com
+</code></p><br><br><h3>国际油价大幅上涨，油气开采板块全线拉升</h3><br><p>中国女子手球队拿到奥运资格，时隔28年重返奥运赛场。<br><br> | 来源：<code>www.le-service-divin.com
+</code></p><br><br><h3>全国体育产业总规模上半年突破3.5万亿元，占GDP比重提升</h3><br><p>超200家机构到访数据要素龙头，数据确权商业模式落地。<br><br> | 来源：<code>www.zzwtest.com
+</code></p><br><br><h3>中原高速异动拉升2.2%，河南路网业务边际改善</h3><br><p>恒瑞医药创新药管线：国内创新药龙头的研发投入回报。<br><br> | 来源：<code>www.cztxwl.cn
+</code></p><br><br><h3>长征国家文化公园全面建成，红色旅游年接待人次突破15亿</h3><br><p>通用人工智能创新平台落地，大模型标的拉升。<br><br> | 来源：<code>www.zzlxgg.com.cn
+</code></p><br><br><h3>海外对冲基金集中调研CXO龙头，新签订单增速超预期</h3><br><p>中国帆船队奥运会夺得金牌，蓝色海洋运动取得重大突破。<br><br> | 来源：<code>www.archicourse.cn
+</code></p><br><br><h3>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升</h3><br><p>贵州茅台前三季度营收破千亿，业绩预告超预期。<br><br> | 来源：<code>www.geeksuper.cn
