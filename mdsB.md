@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分16秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>人民币汇率大幅升值，航空造纸板块集体上涨</h3><br><p>洽洽食品坚果品类拓展：传统炒货企业的成长第二曲线。<br><br> | 来源：<code>https://mitao-chengshu-shi.com.cn
+</code></p><br><br><h3>全国虚拟电厂调控能力突破1亿千瓦，电网灵活性大幅提升</h3><br><p>中国围棋选手夺得世界冠军，连续十年保持世界第一。<br><br> | 来源：<code>https://mitao-chengshushi.com.cn
+</code></p><br><br><h3>OpenAI发布多模态大模型，AI应用板块集体异动</h3><br><p>铅价上涨7%，铅酸电池板块盈利边际改善。<br><br> | 来源：<code>https://mitao-chengshushidianying.com.cn
+</code></p><br><br><h3>大模型轻量化技术突破，1B参数模型效果追平百亿级模型</h3><br><p>F1中国大奖赛上海站落幕，周冠宇获本土最佳第四名创历史。<br><br> | 来源：<code>https://mitao-chengshushizaixian.com.cn
+</code></p><br><br><h3>机构资金净买入亿纬锂能4亿，储能龙头获长线资金加仓</h3><br><p>宁德时代跳空高开6.4%，麒麟电池商业化落地加速。<br><br> | 来源：<code>https://mitao-chengshushizaixianguankan.com.cn
+</code></p><br><br><h3>极端高温天气来袭，电力运营板块集体拉升</h3><br><p>超170家机构到访PCB龙头，AI服务器板订单同比翻倍。<br><br> | 来源：<code>https://mitao-chuanmei.com.cn
+</code></p><br><br><h3>润和软件涨超7.2%，鸿蒙生态业务落地加速</h3><br><p>百亿级机构组团到访低空经济龙头，低空试飞进展获披露。<br><br> | 来源：<code>https://mitao-dianying.com.cn
+</code></p><br><br><h3>实控人兜底式增持中药配方颗粒标的，员工参与比例超85%</h3><br><p>宠物食品企业开启新股申购，海外自主品牌占比突破40%。<br><br> | 来源：<code>https://mitao-pojieban.com.cn
+</code></p><br><br><h3>交控科技异动拉升4.5%，城轨信号系统订单爆发</h3><br><p>降准资金定向支持半导体产业，芯片板块获流动性利好。<br><br> | 来源：<code>https://mitao-shipin.com.cn
+</code></p><br><br><h3>存储芯片价格连续上涨12%，存储板块迎来趋势性行情</h3><br><p>伊利股份涨超3.2%，乳制品行业需求回暖。<br><br> | 来源：<code>https://mitao-shipinzaixianguankan.com.cn
+</code></p><br><br><h3>万科A核心城市去化超预期，单季业绩预告环比改善</h3><br><p>百亿私募组团调研碳化硅企业，车规级器件量产线投产。<br><br> | 来源：<code>https://mitao-wang.com.cn
+</code></p><br><br><h3>赣锋锂业放量上涨，固态电池技术落地加速</h3><br><p>机构资金联手买入北京君正9500万，车载存储龙头获抱团。<br><br> | 来源：<code>https://mitao-wangzhan.com.cn
+</code></p><br><br><h3>大模型在农业领域应用，病虫害识别准确率超97%</h3><br><p>美联储宣布降息25BP，全球权益资产迎来估值修复窗口。<br><br> | 来源：<code>https://mitao-yingyuan.com.cn
+</code></p><br><br><h3>航发动力军机交付超预期，前三季度业绩预增超30%</h3><br><p>长白山暑期避暑游热度高，日均接待游客超2万人次。<br><br> | 来源：<code>https://mitao-zaixian.com.cn
+</code></p><br><br><h3>外资机构集中调研种业龙头，转基因商业化落地节奏披露</h3><br><p>全国家政服务业营收上半年同比增长16%，民生消费升温。<br><br> | 来源：<code>https://mitaochengshushi.com.cn
+</code></p><br><br><h3>煤炭价格企稳回升，煤炭高股息标的集体上涨</h3><br><p>头部券商到访游戏出海龙头，海外流水增速数据首次公开。<br><br> | 来源：<code>https://mitaochuanmeizaixianguankan.com.cn
+</code></p><br><br><h3>重庆马拉松开跑，3万跑者体验山城赛道赛事热度创新高</h3><br><p>中国男子举重队世锦赛打破5项世界纪录，统治力依旧。<br><br> | 来源：<code>https://mitaodongman.com.cn
+</code></p><br><br><h3>国内降准政策落地，大金融板块全线拉升</h3><br><p>数字人民币试点扩容，数字人民币产业链走强。<br><br> | 来源：<code>https://mitaoshipinwang.com.cn
+</code></p><br><br><h3>政策性降息支持汽车消费，新能源汽车板块迎来定向利好</h3><br><p>东方雨虹渠道优势：建材龙头的全国化布局与品牌溢价。<br><br> | 来源：<code>https://mitaoshipinzaixian.com.cn
+</code></p><br><br><h3>知名私募组团调研MR产业链标的，新品备货数据曝光</h3><br><p>杀菌剂价格上调10%，农药细分板块迎来行情。<br><br> | 来源：<code>https://mitaoshipinzhuye.com.cn
