@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>多氟多六氟磷酸锂布局：锂电材料细分龙头的周期成长</h3><br><p>万华化学研发投入优势：化工龙头持续技术迭代的底层逻辑。<br><br> | 来源：<code>https://17cyiqizaixianguankan.com.cn
+</code></p><br><br><h3>机构专用席位净买入许继电气5800万，特高压龙头获加仓</h3><br><p>美联储降息后全球流动性宽松，成长板块估值抬升。<br><br> | 来源：<code>https://17qicaoshipin.com.cn
+</code></p><br><br><h3>大股东耗资7亿增持游戏出海龙头，回购用于员工持股计划</h3><br><p>大模型轻量化部署方案成熟，中小企业接入成本下降90%。<br><br> | 来源：<code>https://17yiqicao.com.cn
+</code></p><br><br><h3>全国江豚种群数量突破2000头，长江微笑天使重现</h3><br><p>被动元器件价格集体上涨，电子板块盈利边际改善。<br><br> | 来源：<code>https://18-wangzhan.com.cn
+</code></p><br><br><h3>中国轮滑队世锦赛包揽全部金牌，优势项目持续领跑世界</h3><br><p>五粮液重回160元，关键点位的多空博弈分析。<br><br> | 来源：<code>https://1996-zhicheng-guoji.com
+</code></p><br><br><h3>比亚迪涨超6.7%，刀片电池外供比例持续提升</h3><br><p>上海斯诺克大师赛开幕，丁俊晖击败世界第一闯入四强。<br><br> | 来源：<code>https://2026worldcup-guanwang-vip.com
+</code></p><br><br><h3>全球循环经济市场规模突破5万亿美元，资源利用效率提升</h3><br><p>国产现实题材电视剧收视领跑，多部作品斩获国际奖项。<br><br> | 来源：<code>https://2121-feifan-entry.com
+</code></p><br><br><h3>教育部新增37个高校专业，聚焦人工智能、生物医药等前沿领域</h3><br><p>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发。<br><br> | 来源：<code>https://2121-feifan-official.com
+</code></p><br><br><h3>LPR非对称下调，银行净息差压力边际缓解</h3><br><p>中国茶文化申遗成功，成为人类非物质文化遗产代表作。<br><br> | 来源：<code>https://2pg-login-reg.com
+</code></p><br><br><h3>实控人溢价15%增持碳纤维企业，传递长期发展信心</h3><br><p>阳光电源涨超7%，逆变器海外订单持续超预期。<br><br> | 来源：<code>https://3dshipin.com.cn
+</code></p><br><br><h3>东方雨虹渠道优势：建材龙头的全国化布局与品牌溢价</h3><br><p>中国平安涨超3.4%，寿险新业务价值增速转正。<br><br> | 来源：<code>https://432-yinghuang-app.com
+</code></p><br><br><h3>人民币汇率升值叠加美联储降息，航空造纸板块集体异动</h3><br><p>实控人兜底式增持固态电池企业，员工响应参与比例超90%。<br><br> | 来源：<code>https://4688tv.com.cn
+</code></p><br><br><h3>养老金入市比例提升，养老金重仓标的走强</h3><br><p>控股股东耗资3亿增持汽车电子标的，回购股份用于股权激励。<br><br> | 来源：<code>https://51-anwang.com.cn
+</code></p><br><br><h3>国内大模型企业估值破万亿，30家企业跻身独角兽行列</h3><br><p>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发。<br><br> | 来源：<code>https://512vip-kaiyuan-official.com
+</code></p><br><br><h3>全国房地产开发投资降幅收窄，市场预期逐步企稳</h3><br><p>铂价上涨10%，燃料电池催化剂板块迎来涨价催化。<br><br> | 来源：<code>https://51chi-guawang.com.cn
+</code></p><br><br><h3>MCU芯片价格单月上涨8%，汽车半导体板块盈利改善</h3><br><p>社保基金现身工业AI龙头调研，行业渗透率数据首次公开。<br><br> | 来源：<code>https://51chiguayuming.com.cn
+</code></p><br><br><h3>义务教育优质均衡创建推进，千个县区通过国家级评估</h3><br><p>MCU芯片价格单月上涨8%，汽车半导体板块盈利改善。<br><br> | 来源：<code>https://51dashijian.com.cn
+</code></p><br><br><h3>浪潮信息算力生态优势：AI服务器龙头的产业链协同能力</h3><br><p>坚果产品价格上涨5%，休闲食品龙头盈利改善。<br><br> | 来源：<code>https://51hei-liao.com.cn
+</code></p><br><br><h3>音乐节市场上半年演出超500场，年轻群体消费占比超80%</h3><br><p>服务机器人试点政策落地，家用机器人标的异动。<br><br> | 来源：<code>https://52-pojie.com.cn
+</code></p><br><br><h3>西湖暑期游客量突破600万人次，免费景区持续释放民生红利</h3><br><p>威海暑期滨海游火爆，国际海水浴场日均客流超10万。<br><br> | 来源：<code>https://52662-dingsheng-official.com
