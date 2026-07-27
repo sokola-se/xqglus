@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分17秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>北向资金连续加仓赣锋锂业，锂矿龙头获外资持续流入</h3><br><p>金龙汽车海外客车出口：客车行业龙头的海外拓展逻辑。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>万华化学涨超3.5%，化工品价格企稳回升</h3><br><p>美联储降息25BP，中概股集体暴涨带动A股联动。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>秦始皇陵兵马俑新坑发掘启动，将揭开秦代军阵更多秘密</h3><br><p>游资顶级席位打板璞泰来1.7亿，锂电材料标的获热炒。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>蒙牛乳业低温奶布局：乳制品行业第二增长曲线解析</h3><br><p>特斯拉机器人Optimus新进展，人形机器人板块异动。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>全国快递包装绿色转型推进，可降解材料使用率达85%</h3><br><p>全国统一大市场建设取得阶段性进展，流通成本下降15%。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>全国水泥行业碳减排技术升级，低碳生产线占比超60%</h3><br><p>QFII新进汽车芯片标的，MCU国产替代获海外机构看好。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>教育改革与人才发展（100条）</h3><br><p>上半年全国机器人产量同比增长25%，智能制造加速推进。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>氢能燃料电池龙头登陆创业板，商用车推广订单同比大增</h3><br><p>稀土价格政策调控收储，稀土永磁标的全线拉升。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>恒瑞医药异动拉升5.6%，创新药新品贡献增量</h3><br><p>券商研究所扎堆调研车载雷达标的，激光雷达量产交付节奏。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>全球人工智能芯片市场规模突破1500亿美元，算力需求暴涨</h3><br><p>特变电工多晶硅布局：新能源全产业链的协同成长逻辑。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>外资准入政策放宽，外资偏好标的全线拉升</h3><br><p>2026年文旅市场全面繁荣，文化自信融入大众日常生活。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>江铃汽车异动拉升4.2%，轻卡新能源化加速</h3><br><p>山西汾酒全国化路径：清香型白酒龙头的全国扩张逻辑。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>职业教育法实施一周年，新增100所应用型技术大学</h3><br><p>制造业PMI连续6个月位于扩张区间，行业景气度持续回升。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>暑期亲子游订单同比增长45%，研学旅行成为消费新热点</h3><br><p>机构资金集中买入海螺水泥7300万，水泥龙头获机构抱团。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>AI图像识别技术突破，缺陷检测准确率超99.5%</h3><br><p>头部机构组团到访医美耗材龙头，新品获批进度超预期。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>海大集团研发体系：水产饲料配方技术的持续迭代能力</h3><br><p>NBA季后赛中国球员首次夺冠，创造亚洲篮球历史。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>AI手语翻译大模型上线，助力千万听障人士沟通无障碍</h3><br><p>天然气价格季节性上涨15%，燃气运营板块迎来行情。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>多氟多六氟磷酸锂布局：锂电材料细分龙头的周期成长</h3><br><p>全国社区运动会覆盖千城，群众家门口参与体育赛事。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>冷链物流扶持政策，冷链物流板块集体上涨</h3><br><p>国内老年文旅市场升温，银发游订单同比增长70%。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>中原高速异动拉升2.2%，河南路网业务边际改善</h3><br><p>央行下调再贷款再贴现利率，小微和三农融资成本下行。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>全国城市建筑垃圾资源化利用率达70%，变废为宝生产建材</h3><br><p>北向资金单日买入三安光电9000万，LED龙头获外资持续流入。<br><br> | 来源：<code>www.ituijie.com
