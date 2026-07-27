@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分22秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>超200家机构到访数据要素龙头，数据确权商业模式落地</h3><br><p>比亚迪涨超6.7%，刀片电池外供比例持续提升。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>平遥古城暑期推出实景演出，夜间场次上座率超100%</h3><br><p>北向资金连续调研后举牌智能电网标的，外资持续流入。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>网易有道教育大模型落地，AI个性化学习系统覆盖千万学生</h3><br><p>低空经济龙头登陆创业板，eVTOL适航认证进度成核心看点。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>外资机构集中调研短视频出海标的，海外用户规模破亿</h3><br><p>百亿私募组团调研碳纤维企业，风电领域应用占比突破60%。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>国内AI人才培养体系完善，高校新增AI相关专业超千个</h3><br><p>游资顶级席位打板梅花生物5200万，氨基酸标的获热炒。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>新疆交建放量上涨4.1%，新疆区域基建投资持续升温</h3><br><p>国内大模型行业应用案例破百万，覆盖千行百业。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>海康威视AI业务高增，单季净利润同比增45%</h3><br><p>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>美联储第三次降息落地，全球风险偏好显著提升</h3><br><p>储能电池价格小幅上涨3%，储能产业链价格体系企稳。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>敦煌莫高窟暑期门票预约排至10天后，数字敦煌线上访问破亿</h3><br><p>三元正极材料价格上调6%，锂电材料产业链景气回升。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>外资资管举牌固态电解质企业，下一代电池技术获外资重仓</h3><br><p>AI智能写作工具普及，内容创作者产出效率提升2倍。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>海绵城市建设推广，海绵城市板块集体上涨</h3><br><p>敦煌研究院数字文创营收突破5亿元，千年文化触达年轻群体。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>紫光国微特种芯片优势：军工电子赛道的隐形冠军解析</h3><br><p>中国高尔夫球选手首次夺得美巡赛冠军，实现历史性突破。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>国产光刻机交付突破，半导体设备板块全线大涨</h3><br><p>全面降准叠加定向降息，宽货币向宽信用传导加速。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>海康威视企稳回升，AI安防赛道需求逐步回暖</h3><br><p>公募基金集中调研智慧矿山龙头，煤矿智能化改造订单翻倍。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>赣锋锂业涨超5.3%，固态电池试点线投产</h3><br><p>存量房贷利率集中下调，居民消费能力有望边际改善。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>中国中车异动拉升，一带一路订单持续释放</h3><br><p>保险资管扎堆调研绿电运营标的，电价弹性空间引热议。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>中国女子冰球队世锦赛升组，重返顶级赛事行列</h3><br><p>上海推出“夜生活节”，夜间商户营业额同比增长60%。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>10年期国债收益率下行至历史低位，高股息资产配置价值凸显</h3><br><p>全国人均预期寿命提升至79.8岁，主要健康指标居中高收入国家前列。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持医药流通龙头，合计投入超6亿</h3><br><p>养老金现身创新器械标的，海外FDA获批进度超预期。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>海外资管组团调研光伏逆变器标的，海外市占率突破30%</h3><br><p>全国野生东北豹种群数量突破100只，生物链完整性恢复。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>电池片价格小幅上调3%，光伏产业链盈利分配优化</h3><br><p>QFII大幅加仓低空经济龙头，单季度持股翻倍引市场关注。<br><br> | 来源：<code>www.zxyy999.com
