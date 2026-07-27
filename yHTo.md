@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分52秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>西藏暑期游客量突破200万人次，高原旅游热度创新高</h3><br><p>外资机构集中调研存储芯片龙头，海外订单情况成焦点。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>5年期LPR下调带动房企开发贷利率下行，房企盈利改善</h3><br><p>中远海控集运运价反弹，单季业绩预告环比大增。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>页岩气勘探开发政策，页岩气开采板块走强</h3><br><p>多地发放消费券超200亿元，撬动社会消费超千亿元。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>洽洽食品涨超3.4%，坚果业务收入增速回升</h3><br><p>长安汽车涨停封板，深蓝系列车型销量破万。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>鱼类产品价格上调10%，渔业板块迎来行情</h3><br><p>10年期国债收益率下行至2.5%以下，权益资产吸引力提升。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>中国女子跆拳道队世锦赛斩获4金，奥运备战状态出色</h3><br><p>降准释放资金补充银行流动性，信贷投放能力显著提升。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>中国五子连珠队世界杯包揽全部金牌，优势项目无人能敌</h3><br><p>海尔智家异动拉升4.2%，卡萨帝高端品牌增速亮眼。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>北向资金大额扫货紫金矿业3.5亿，黄金龙头获外资持续流入</h3><br><p>低空经济龙头登陆创业板，eVTOL适航认证进度成核心看点。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>中国棒球队首次晋级世界杯决赛圈，棒球运动迎来新发展</h3><br><p>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>龙江交通放量上涨1.8%，东北区域车流量边际改善</h3><br><p>国产EDA龙头登陆科创板，核心技术打破海外垄断引市场关注。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>知名私募大手笔增持汽车轻量化标的，持仓占比突破4%</h3><br><p>中国门球队世锦赛夺得冠军，中老年运动项目国际领先。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>海天味业调味品动销超预期，单季业绩预告超预期</h3><br><p>原油价格突破85美元/桶，油气开采板块盈利提升。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>天际股份锂电材料业务：传统化工企业的转型成长逻辑</h3><br><p>被动元器件价格集体上涨，电子板块盈利边际改善。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>国内降息政策出台，地产链标的集体上涨</h3><br><p>药明康德异动拉升5.2%，海外新药订单持续落地。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>鸭肉价格上涨12%，水禽养殖板块迎来行情</h3><br><p>北向资金举牌人形机器人标的，持股比例首次突破5%红线。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>碳化硅衬底标的登陆科创板，6英寸衬底产能全球领先</h3><br><p>海产品全产业链涨价，水产板块全面异动。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>机构专用席位大额买入招商银行2.5亿，银行龙头获机构增持</h3><br><p>瓦楞纸价格上调4%，造纸板块迎来全面涨价催化。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>美联储宣布降息50BP超市场预期，全球风险资产暴涨</h3><br><p>社保基金现身镁合金龙头，汽车轻量化订单同比翻倍。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>飞天茅台批价突破2900元，白酒龙头盈利超预期</h3><br><p>组件价格触底反弹4%，光伏龙头盈利迎来修复窗口。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>杀菌剂价格上调10%，农药细分板块迎来行情</h3><br><p>外资持续流入中芯国际，半导体龙头持仓占比突破5%。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>头部机构组团到访冷链物流标的，生鲜配送网络覆盖披露</h3><br><p>全球教育科技市场规模突破4000亿美元，线上教育持续普及。<br><br> | 来源：<code>www.hnltjy.com
