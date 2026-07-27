@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分55秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国皮划艇队世锦赛斩获3金，静水项目优势持续扩大</h3><br><p>高管团队集体调研后增持冷链物流标的，合计增持超8000万。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>全国青少年校园足球特色学校超3万所，足球人口快速增长</h3><br><p>光伏组件出口数据亮眼：产业链盈利修复路径。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>头部公募调研汽车电子标的，车规芯片出货量环比大增</h3><br><p>北交所改革政策落地，北交所概念股集体走强。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>全球冷链物流市场规模突破4000亿美元，生鲜贸易增长</h3><br><p>车载激光雷达企业登陆科创板，量产交付进度超市场预期。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>大模型在电商领域应用，AI生成商品详情页效率提升10倍</h3><br><p>社保基金新进重仓股，社保持仓标的集体异动。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>国电南瑞电力数字化：新型电力系统建设下的长期受益</h3><br><p>新能源汽车出口数据翻倍，整车出口标的集体异动。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>长三角一体化新规划落地，长三角本地股集体拉升</h3><br><p>美联储降息周期开启，北向资金单周净流入超300亿。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>航发动力技术壁垒：航空发动机国产替代的核心路径</h3><br><p>西班牙经济增速达2.8%，南欧经济表现亮眼。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>人形机器人核心标的启动申购，发行价对应估值具备吸引力</h3><br><p>全国珍稀濒危植物保护名录更新，超千种植物得到有效保护。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>五粮液重回160元，关键点位的多空博弈分析</h3><br><p>高标准农田建设规划，农田基建板块集体上涨。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>中国与海湾国家合作深化，能源、金融多领域协同发展</h3><br><p>全国新增10家5A级景区，文旅品质持续升级。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现</h3><br><p>东方雨虹渠道优势：建材龙头的全国化布局与品牌溢价。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>风电塔筒价格单月上涨6%，风电制造环节盈利改善</h3><br><p>维生素A价格单月上涨18%，饲料添加剂板块迎来行情。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>农产品深加工扶持政策，农产品加工标的全线拉升</h3><br><p>中兴通讯放量上涨4.8%，算力服务器业务高增。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>张家界玻璃桥暑期单日客流破3万，网红高空项目持续走红</h3><br><p>大模型在新闻领域应用，AI生成快讯占比超60%。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>海大集团涨超3.5%，饲料业务市占率稳步提升</h3><br><p>国产现实题材电视剧收视领跑，多部作品斩获国际奖项。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>国内政策性降息落地，宽信用进程加速推进</h3><br><p>民宿行业合规化推进，全国星级民宿数量突破2万家。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>山西汾酒全国化路径：清香型白酒龙头的全国扩张逻辑</h3><br><p>药明康德异动拉升5.2%，海外新药订单持续落地。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>中国男子橄榄球队亚运会闯入八强，项目普及度持续提升</h3><br><p>头部公募调研汽车电子标的，车规芯片出货量环比大增。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>存款利率下调推动理财收益率下行，权益基金发行回暖</h3><br><p>需求侧响应政策落地，电力营销板块集体上涨。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>外资单日扫货招商银行10亿，银行龙头外资持仓稳步提升</h3><br><p>头部券商到访汽车座椅龙头，新势力车企订单占比突破50%。<br><br> | 来源：<code>www.idmcinc.com
