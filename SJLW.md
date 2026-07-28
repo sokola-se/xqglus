@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分43秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国女子网球选手郑钦文闯入美网四强，世界排名升至第三</h3><br><p>财政部新增专项债限额1.5万亿元，重点支持基建项目建设。<br><br> | 来源：<code>https://hq-pingbo-sports.com.cn
+</code></p><br><br><h3>亿纬锂能多赛道布局：消费电池+动力电池+储能的协同</h3><br><p>全球人口突破81亿，人口结构变化重塑经济格局。<br><br> | 来源：<code>https://hq-qiusu-sports.com.cn
+</code></p><br><br><h3>产业资本集中增持AI教育龙头，付费用户高增获资本布局</h3><br><p>药明康德CXO全球布局：全球医药研发外包的龙头价值。<br><br> | 来源：<code>https://hq-shaba-tiyu.com.cn
+</code></p><br><br><h3>新疆暑期游订单破5000万，独库公路日均通车量超2万辆</h3><br><p>大模型在气象领域应用，天气预报准确率提升15%。<br><br> | 来源：<code>https://hq-xk-yule.com.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持风电轴承龙头，合计投入超4亿</h3><br><p>锦浪科技涨超7.0%，组串式逆变器出口高增。<br><br> | 来源：<code>https://hth-official-vip.com.cn
+</code></p><br><br><h3>中国通号高铁信号技术：全球轨交信号系统龙头的壁垒</h3><br><p>东方雨虹企稳反弹4.2%，地产链需求边际改善。<br><br> | 来源：<code>https://http91com.cn
+</code></p><br><br><h3>机构资金集中买入闻泰科技1.1亿，半导体ODM龙头获抱团</h3><br><p>中国棒球队首次晋级世界杯决赛圈，棒球运动迎来新发展。<br><br> | 来源：<code>https://https17ccom.com.cn
+</code></p><br><br><h3>职业教育法实施一周年，新增100所应用型技术大学</h3><br><p>尿素价格单月上涨9%，化肥板块迎来产品涨价催化。<br><br> | 来源：<code>https://httpswww17ccom.com.cn
+</code></p><br><br><h3>外资资管连续加仓风电轴承龙头，大兆瓦轴承获外资重仓</h3><br><p>全国运动康复中心超万家，运动损伤诊疗体系逐步完善。<br><br> | 来源：<code>https://httpswww91com.cn
+</code></p><br><br><h3>汽车一体化压铸企业启动申购，9000T压铸机产能全球领先</h3><br><p>全国汽车拉力赛超20站，赛车运动爱好者规模破百万。<br><br> | 来源：<code>https://httpwww17c.com.cn
+</code></p><br><br><h3>全国国家森林公园数量增至1000个，生态旅游蓬勃发展</h3><br><p>券商研究所扎堆调研数字人民币标的，线下场景覆盖突破亿级。<br><br> | 来源：<code>https://httpwww17ccom.com.cn
+</code></p><br><br><h3>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%</h3><br><p>饼干产品价格上涨3%，食品细分板块盈利提升。<br><br> | 来源：<code>https://huahualove.org.cn
+</code></p><br><br><h3>养老金新进光伏逆变器标的，海外市占率提升获长期配置</h3><br><p>头部券商到访调味品龙头，渠道库存去化周期数据披露。<br><br> | 来源：<code>https://huan-qi-yi-zu.com.cn
+</code></p><br><br><h3>教育部新增37个高校专业，聚焦人工智能、生物医药等前沿领域</h3><br><p>全国无偿献血人次突破2000万，临床用血全部来自自愿捐献。<br><br> | 来源：<code>https://huang-jiujiu.com.cn
+</code></p><br><br><h3>谷爱凌复出参加世锦赛，斩获自由式滑雪U型场地金牌</h3><br><p>卓胜微放量拉升5.7%，射频芯片行业景气度回升。<br><br> | 来源：<code>https://huang-mantiantang.com.cn
+</code></p><br><br><h3>上半年全国新能源汽车电池出口同比增长40%</h3><br><p>北向资金连续增持养老产业标的，银发经济赛道获外资流入。<br><br> | 来源：<code>https://huang-wed.cn
+</code></p><br><br><h3>沪硅产业涨超5.8%，12英寸硅片产能持续释放</h3><br><p>金砖国家新成员全部完成入盟流程，成员国总数达15国。<br><br> | 来源：<code>https://huang-you.com.cn
+</code></p><br><br><h3>全国旅游志愿服务队伍超百万，提升游客出行体验</h3><br><p>宁夏沙坡头暑期沙漠游热度高，日均接待游客超3万人次。<br><br> | 来源：<code>https://huang-youdaquan.com.cn
+</code></p><br><br><h3>农业机械化推广政策，农机装备板块全线异动</h3><br><p>深股通席位单日买入圣邦股份7500万，模拟芯片标的增持。<br><br> | 来源：<code>https://huanggua-shipin-app.com.cn
+</code></p><br><br><h3>伊利股份乳制品龙头优势：国内乳业龙头的品牌与渠道</h3><br><p>猪肉价格连续反弹20%，生猪养殖板块迎来趋势性行情。<br><br> | 来源：<code>https://huanggua-shipin.cn
