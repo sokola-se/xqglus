@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>美的集团全球化运营：家电龙头的海外市场拓展路径</h3><br><p>中国与中亚五国经贸合作升级，双边贸易额突破千亿。<br><br> | 来源：<code>https://91wangyeliulanqimianfeiban.com.cn
+</code></p><br><br><h3>公募基金集中调研电力现货交易标的，交易系统订单翻倍</h3><br><p>国内AI伦理规范发布，引导大模型健康有序发展。<br><br> | 来源：<code>https://91wangzhandaquan.cn
+</code></p><br><br><h3>水产品价格集体上涨，水产养殖板块迎来涨价催化</h3><br><p>高管团队集体增持工业AI龙头，合计增持金额超2.3亿。<br><br> | 来源：<code>https://91wangzhi.com.cn
+</code></p><br><br><h3>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升</h3><br><p>超170家机构到访PCB龙头，AI服务器板订单同比翻倍。<br><br> | 来源：<code>https://91xin.com.cn
+</code></p><br><br><h3>中国-东盟自贸区3.0版谈判完成，贸易便利化升级</h3><br><p>中国电竞战队S13总决赛夺冠，LPL赛区连续三年捧杯。<br><br> | 来源：<code>https://91zaixian-guankan.com.cn
+</code></p><br><br><h3>美联储降息周期开启，黄金珠宝板块迎来趋势性行情</h3><br><p>全球新材料市场规模突破5万亿美元，支撑高端制造发展。<br><br> | 来源：<code>https://91zaixianguankan.cn
+</code></p><br><br><h3>比亚迪AH股同步走强，量价配合下的交易机会分析</h3><br><p>紫金矿业创阶段新高，黄金有色板块沿趋势上行。<br><br> | 来源：<code>https://91zh.com.cn
+</code></p><br><br><h3>降准释放资金定向支持基建，基建板块迎来流动性利好</h3><br><p>社保基金现身存储模组龙头，AI存储产品出货量超预期。<br><br> | 来源：<code>https://91zhuiju.com.cn
+</code></p><br><br><h3>电解铝价格突破2万元/吨，铝业上市公司盈利弹性释放</h3><br><p>虾产品价格上涨15%，水产细分板块盈利弹性释放。<br><br> | 来源：<code>https://9570-jinguan-zhijia.com
+</code></p><br><br><h3>中原高速异动拉升2.2%，河南路网业务边际改善</h3><br><p>许继电气特高压布局：特高压产业链核心标的的成长逻辑。<br><br> | 来源：<code>https://9570-login-home.com
+</code></p><br><br><h3>2026年AI产业赋能经济增长超万亿，成为数字经济核心引擎</h3><br><p>控股股东耗资2.8亿增持创新药龙头，核心管线临床进展获信心。<br><br> | 来源：<code>https://aaarihan.cn
+</code></p><br><br><h3>英国经济止跌回升，二季度GDP同比增长0.6%</h3><br><p>知名私募大手笔增持TOPCon电池标的，持仓占比达4%。<br><br> | 来源：<code>https://aaawang.com.cn
+</code></p><br><br><h3>全国消费促进月活动启动，覆盖超百万商家拉动暑期消费</h3><br><p>科技成长行情延续：AI算力、半导体、光模块的景气度排序。<br><br> | 来源：<code>https://ai-ai-shipin-wangzhan.com.cn
+</code></p><br><br><h3>政策性降息支持汽车消费，新能源汽车板块迎来定向利好</h3><br><p>美的集团海外收入高增，前三季度业绩预增超25%。<br><br> | 来源：<code>https://ai-aishipin.com.cn
+</code></p><br><br><h3>全国社区运动会覆盖千城，群众家门口参与体育赛事</h3><br><p>浪潮信息放量上涨7.4%，AI服务器出货量超预期。<br><br> | 来源：<code>https://ai-fengyue.com.cn
+</code></p><br><br><h3>大模型在航空领域应用，飞行模拟训练效率提升30%</h3><br><p>宁德时代单日大涨6.2%，动力电池赛道迎来集体反弹。<br><br> | 来源：<code>https://ai-weinai.com.cn
+</code></p><br><br><h3>机构席位大额买入通威股份2.9亿，光伏龙头获长线资金布局</h3><br><p>全国羽毛球业余赛参赛人数破50万，民间高手层出不穷。<br><br> | 来源：<code>https://ai-weinaizaixian.cn
+</code></p><br><br><h3>万华化学MDI价格反弹，单季业绩预告超预期</h3><br><p>芯片价格开启涨价潮，半导体板块盈利迎来修复。<br><br> | 来源：<code>https://aiaiwang.net.cn
+</code></p><br><br><h3>天齐锂业触底反弹，锂矿价格企稳带动板块情绪</h3><br><p>海天味业涨超3.5%，调味品行业需求复苏。<br><br> | 来源：<code>https://aigei.net.cn
+</code></p><br><br><h3>国产现实题材电影票房占比超60%，贴近生活引发全民共鸣</h3><br><p>实控人承诺12个月内不减持智慧矿山标的，稳定市场预期。<br><br> | 来源：<code>https://aiqing-daodujia.org.cn
