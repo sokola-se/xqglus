@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分40秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国内AI服务器出货量上半年同比增长120%，产业链全面爆发</h3><br><p>美联储降息周期开启，黄金珠宝板块迎来趋势性行情。<br><br> | 来源：<code>https://91-mianfei.com.cn
+</code></p><br><br><h3>多氟多涨超5.2%，六氟磷酸锂价格触底反弹</h3><br><p>全国人均预期寿命提升至79.8岁，主要健康指标居中高收入国家前列。<br><br> | 来源：<code>https://91-mianfeiban.com.cn
+</code></p><br><br><h3>养老金现身碳化硅衬底龙头，6英寸衬底产能释放进度披露</h3><br><p>国内大模型安全检测平台上线，为所有备案模型提供合规检测。<br><br> | 来源：<code>https://91-mianfeishipin.com.cn
+</code></p><br><br><h3>2026年全国高考报名人数1391万，多地新增AI相关专业招生</h3><br><p>亨通光电涨超4.4%，海洋能源业务贡献增量。<br><br> | 来源：<code>https://91-mianfeiwang.cn
+</code></p><br><br><h3>人形机器人核心标的启动申购，发行价对应估值具备吸引力</h3><br><p>中芯国际放量拉升7.1%，半导体国产替代逻辑再强化。<br><br> | 来源：<code>https://91-mitao.com.cn
+</code></p><br><br><h3>外资资管连续加仓风电轴承龙头，大兆瓦轴承获外资重仓</h3><br><p>沃森生物涨超4.6%，新型疫苗临床进展超预期。<br><br> | 来源：<code>https://91-n.cn
+</code></p><br><br><h3>超160家机构到访锂电回收龙头，回收处理产能利用率超90%</h3><br><p>私募基金仓位创年内新高，私募重仓标的上涨。<br><br> | 来源：<code>https://91-n.com.cn
+</code></p><br><br><h3>硅锰价格单月上涨9%，铁合金板块盈利改善</h3><br><p>猪肉价格连续反弹20%，生猪养殖板块迎来趋势性行情。<br><br> | 来源：<code>https://91-shipin.com.cn
+</code></p><br><br><h3>法国二季度GDP增长0.4%，经济逐步走出停滞</h3><br><p>券商研究所扎堆调研算力租赁标的，机柜上架率突破95%。<br><br> | 来源：<code>https://91-shipinwang.com.cn
+</code></p><br><br><h3>调味品行业标准升级，调味品龙头板块走强</h3><br><p>北向资金连续增持工业母机龙头，高端制造获外资持续流入。<br><br> | 来源：<code>https://91-shipinwangzhan.com.cn
+</code></p><br><br><h3>中航沈飞军机交付逻辑：军工整机龙头的长期成长空间</h3><br><p>汽车零部件赛道景气度上行：细分方向机会全梳理。<br><br> | 来源：<code>https://91-shipinzaixianguankan.com.cn
+</code></p><br><br><h3>QFII集中调研医药流通龙头，院外市场拓展节奏披露</h3><br><p>青岛暑期滨海旅游订单同比增长40%，海滨城市人气高涨。<br><br> | 来源：<code>https://91-tv.com.cn
+</code></p><br><br><h3>世界大学排名发布，清华北大首次双双跻身全球前十</h3><br><p>北向资金单日买入陕西煤业6800万，煤炭龙头获外资流入。<br><br> | 来源：<code>https://91-wang.com.cn
+</code></p><br><br><h3>河北建工涨超2.7%，雄安新区基建订单饱满</h3><br><p>存量房贷利率集中下调，居民消费能力有望边际改善。<br><br> | 来源：<code>https://91-www.cn
+</code></p><br><br><h3>大模型在铁路领域应用，调度系统安全性和效率双提升</h3><br><p>鸡肉价格单月上涨15%，白羽鸡板块盈利弹性释放。<br><br> | 来源：<code>https://91-xiazai.com.cn
+</code></p><br><br><h3>头部券商到访家电出海龙头，海外自主品牌占比突破40%</h3><br><p>QFII新进汽车芯片标的，MCU国产替代获海外机构看好。<br><br> | 来源：<code>https://91-zaixianguankan.com.cn
+</code></p><br><br><h3>中国男子橄榄球队亚运会闯入八强，项目普及度持续提升</h3><br><p>全球跨境直接投资回升至1.5万亿美元，流向绿色产业。<br><br> | 来源：<code>https://9170-guanfang-jinsha.com
+</code></p><br><br><h3>郑钦文闯入温网女单决赛，创中国网球选手大满贯单打最佳战绩</h3><br><p>江特电机触底反弹5.9%，锂盐价格企稳回升。<br><br> | 来源：<code>https://9170-jinsha-official.com
+</code></p><br><br><h3>中芯国际放量拉升7.3%，14nm产能利用率持续提升</h3><br><p>国内AI生成短视频用户破5亿，短视频行业迎来生产变革。<br><br> | 来源：<code>https://9170-mobile-login.com
+</code></p><br><br><h3>氢能燃料电池龙头登陆创业板，商用车推广订单同比大增</h3><br><p>全国大学生就业帮扶行动启动，国企新增岗位超80万。<br><br> | 来源：<code>https://9170-sands-official.com
